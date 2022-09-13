@@ -1,0 +1,34 @@
+---
+title: "Anglican newsletter"
+date: "2012-06-08"
+categories: 
+  - "village-pump"
+---
+
+<table width="100%" cellspacing="0" cellpadding="0"><tbody><tr><td><div><div></div>&nbsp;<div></div></div></td></tr></tbody></table>
+
+**June 2012 Newsletter**
+
+A few days ago, after two or three hours of interference with my attempts to work emanating from the noise of a car sound system next door (very loud so that the guy motor-mowing could hear it), I went outside, climbed up the fence and shouted for it to be turned down. Maybe my neighbour is going to harbour a grudge against me for ever more. I really hope not. It was only an inconvenience to me that I knew he could ameliorate with limited inconvenience to him – but if it has really upset him, then I am really sorry that I bothered. In fact I must pop round to make sure that nothing is festering there. Because it’s really not worth it. I can’t see many of you readers arguing with that intention. But, somehow, when it comes to more important and wider issues, we seem to get hung up on our principles and unable to concede that actually we could possibly have got it wrong or it is really not important enough that decisions are based on principles that are only a little different from those we hug to our chests so strongly.
+
+It’s a few weeks now since the Local Elections, in which the Coalition parties took a bit of a drubbing, but in which there was no obvious appetite for any real change. Meanwhile on the Continent the Euro is shaking in its shoes and the Growth v Austerity debate is gathering force and stridency. As I write Greece is still in the Euro, but fighting not to accept Germany inspired austerity programmes; the Spanish are up in arms and the French do not really know how far their new (and never been a Government minister of any sort ever in his life before!) President Hollande will go in opposition to German policies for Europe. Meanwhile we sit on the sidelines, massively affected by, but not able to affect, the storms that are hitting the European economy/ies.
+
+That is an inadequate dash around Europe, looking at the situation as it is as I write. By the time you read this, Greece may be out of the Euro (but with what currency instead?) Germany and France may be at war (metaphorically!), Spain may have 100% unemployment and Ireland may have applied to dump the Euro in favour of joining Sterling.
+
+I am not sure what I, as an individual, or any of you should be doing or thinking about all this. Is it wholly outside our ability to be relevant at all? I did not get to vote in the Local Elections, because we weren’t involved around here. But, I would have had a real problem if I had had a vote. The right wing of the Tories are getting restless and really make me ashamed sometimes that I have ever voted Conservative. The grass-roots Lib Dems are getting self-indulgent and reverting to their Student Union type of politics yet again and make me embarrassed to think that I have voted for them in the past. Labour continues to be led by two or three (on the economic front anyway) intellectual midgets and it defies belief that anyone can think them capable of running the country. I am sure that when I have voted for Labour in the past it had teams of leaders.
+
+If I had to vote today, I would like to see a Coalition candidate, but there aren’t any. The politician who inspires me most at present is Nick Clegg. Cameron is part of the way there, but looks out of touch just a little too often. But Mr Clegg stands up and supports the Coalition’s policies, despite all the spleen he earns from his Lib Dem colleagues and party members. His political future looks ever more in doubt, but he resolutely stands up for what he believes in, which is not a narrow party manifesto, but the need for the country to work together (in a coalition of disparate beliefs, working through compromise) to achieve some sort of stability. None of us can have all that we want, we can only have what we are prepared to work for and sacrifice for.
+
+In his constituency in due course, I hope that voters of all parties will recognise his massive contribution to the health of this country - I don’t care if individual policies of the Government are not precisely as they ’should’ be (how could they ever be?), so long as there is an honest attempt to make things work out in a non dogmatic way. In the last General Election, the nation did NOT vote for the Tory Manifesto OR the Labour Manifesto OR the Lib Dem Manifesto. I don’t understand why (except for narrow party reasons) anyone looks at those documents. The only relevant Manifesto is the Coalition Agreement and Opinion Polls showed that, in general, the country supported the Government that wrote it.
+
+You would not know it to see the Commentators and Reporters on serious TV discussion programmes, where their interest seems to be mainly directed towards upsetting the Agreement.
+
+This is not meant to be a political letter and I hope nobody can see from it where I tend to vote in ‘ordinary’ circumstances. What I am trying to vent is my frustration that, at a time, when we should be pulling together, there is so much commentary and ‘news’ that asks us to fight amongst ourselves. It’s not the same as wartime UK, when Churchill got the whole country to support him (in his right or wrong policies incidentally!) – the important thing was to work together. BUT, we are in a time of difficulty – some of us are in dire straits – and rather than internecine fighting, we should be burying our differences – exactly what the last General Election result effectively called for. And we should be looking across our borders as well to do this. It’s not just a question of International Relief to the starving millions in Africa and India – it’s also a question of trying to help our European friends (close relatives actually!) in France and Ireland, in Germany and Greece, in Italy and Portugal and so on.
+
+We are so interdependent that failing to help them is actually cutting our own noses off to spite our own faces. I don’t understand the objections **_in principle_** to helping countries in the Eurozone – even from a **_practical_** standpoint, our economic welfare depends on the heath of the Eurozone countries.
+
+Why do we play these petty games all the time – these petty jealousies – these petty differences?
+
+It’s my responsibility to make sure that my neighbour either is not upset by my complaint about his car audio system OR that, if he is, I make appropriate recompense to him. It’s just as appropriate that we get as friendly and cooperative as we can with each other across the nation and work to make life better for all of us and similarly with our international neighbours, including even our default ‘enemies’, such as Russia.
+
+Keith MacLeod

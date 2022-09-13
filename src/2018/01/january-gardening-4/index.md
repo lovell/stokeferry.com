@@ -1,0 +1,14 @@
+---
+title: "January Gardening."
+date: "2018-01-22"
+categories: 
+  - "village-pump"
+---
+
+Welcome to the new year and the start of a new gardening season. January does not normally have the kind of weather that often tempts you out into the garden. Look out for the few bright sunny days and make the most of them. It’s that time of year where we all start making commitments or to tick something off our ‘bucket list. Gardening is no different, and a new years gardening resolution is a good way to make a new commitment to your garden. Is there anything you did wrong last year that you will not repeat this year? Do you want to try growing something in particular or do you want to become more self-sufficient and grow your own produce? My own resolution is to weed more frequently, and to be harsher at removing self-set seedings from unwanted areas! It’s time to use up all of your left over winter vegetables from the veg plot, including parsnips, swede, sprouting broccoli, Brussels sprouts, leeks, celeriac, winter cabbage, carrots, Jerusalem artichokes and turnips. Warming Vegetable Soup is the best way to ensure nothing goes to waste, and also helps your waistline if you’ve over-indulged this Christmas! Your vegetable plot will be left looking very empty, and any bare soil should be covered in mulch (leaf mould, garden compost, manure, or soil conditioner are best). The mulch can be left on the soil surface, frost will break it down and enrich the soil ready for spring plantings. One group of plants that can fill spaces in vegetable plots are soft fruits and one of the benefits of having sandy soil is it’s workable most of the year. January is the perfect time to plant new soft fruit bushes and canes including Raspberries, Currants, Gooseberries and Rhubarb. Blueberries require acid soil and are best planted in pots of ericaceous compost. Christmas tree cuttings make the perfect mulch for blueberries. Bare root fruit trees will still be available (although the choice of varieties will now be somewhat limited) these must be planted whilst still dormant.
+
+If you have a compost heap, January is a good time to get stuck in and give it a turn. Adding oxygen to the compost heap helps to keep the bacteria working, creating compost more quickly. Turning your compost heap will also keep you warm and uses up ‘excess Christmas calories’. Here’s my other Top Tips for January: • Start forcing Rhubarb. • Inspect stored tubers of Dahlias, Cannas & Begonias for rot. • Purchase and Chit Seed Potatoes • Winter prune wisteria and deciduous hedges such as hawthorn, beech or hornbeam. • Sow seeds of Summer bedding including Begonia, Lobelia, Salvia and Pelargonium in a heated greenhouse or propagator to provide early plants.
+
+Whatever January brings I hope you are able to spend some time in your garden.
+
+Rachel Sobiechowski BSc (Hons) P&R Garden Supplies, Fengate Drove, Brandon 01842 814800 www.p-rgardensupplies.co.uk

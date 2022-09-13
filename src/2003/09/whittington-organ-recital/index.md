@@ -1,0 +1,37 @@
+---
+title: "Whittington organ Recital"
+date: "2003-09-01"
+categories: 
+  - "village-pump"
+  - "whittington"
+---
+
+News of forthcoming muscal extravaganza
+
+Christchurch Whittington
+
+AN 'ALL DAY' ORGAN CONCERT
+
+WILL TAKE PLACE IN
+
+WHITTINGTON CHURCH
+
+on
+
+SATURDAY 27th SEPTEMBER.
+
+8 LOCAL ORGANISTS HAVE KINDLY AGREED TO EACH PLAY
+
+FOR AN HOUR
+
+FROM 10am 'TILL 6pm.
+
+A TICKET, COSTING £5, WILL ENABLE YOU TO VISIT AND LISTEN AS MANY TIMES AND FOR AS LONG ASYOU LIKE.
+
+REFRESHMENTS AVAILABLE
+
+TICKETS & DETAILS
+
+(500143,( 500517,(500307
+
+Anonymous

@@ -1,0 +1,42 @@
+---
+title: "THE VILLAGE SOAPBOX"
+date: "2007-08-01"
+categories: 
+  - "village-pump"
+---
+
+Ron examines anumber of topics and, as usual, poses a number of questions for us to debate.
+
+Tolerance
+
+The extent of immigration in recent years has been a matter of concern to me and, as readers will be well aware, I have often used this soapbox to shout about it, perhaps too often.
+
+A significant proportion of recent immigrants are Muslims, with Hindus some Sikhs, Buddhists and others. On the whole these people have been welcomed and considerable effort has been made to accommodate their beliefs and customs. For many years the British governments have proclaimed a policy of multiculturalism, even boasted of it. Unfortunately some of the beliefs and customs of the newcomers are alien to us - arranged marriages - family honour above family love - open funeral pyres - etc. Many of these newcomers are very intolerant of those within their communities, even within their own families who do not conform to their customs and rules. It is very ironic that we, as a nation, should show tolerance to those who themselves are so intolerant, even to the point of fanaticism.
+
+Regular readers will know that it is the concept of multiculturalism that concerns me most. I believe it to be divisive and a recipe for future social unrest and consider that those who seek to come to this country and wish to settle here should accept our laws, our culture and customs. If they find Britain preferable to their own country, why try to bring the customs and beliefs and mumbo jumbo with them, perhaps they should consider that it may be those very aspects of life in their own countries that has hampered their economic development. If those beliefs and customs are important to them then perhaps they should stay where they came from. Why bring their children here and expose them to western culture then object so violently when they are influenced by it?
+
+Fortunately the Government is talking less of multiculture and more of integration but I am waiting to see what action they will take in future when alien customs conflict with British laws.
+
+As many will be aware, an interesting case has arisen recently of a Friesian bull called Shambo. Routine tests have revealed that poor Shambo has TB and according to British law he must be slaughtered. Shambo belongs to a Hindu temple in Wales where they keep a small herd of cattle, along with some other animals. Cows are considered sacred by Hindus and must not be killed and certainly never eaten. The Hindu community is insisting that Shambo must not be killed and are threatening massive civil disobedience if there is any attempt to kill him. It will be interesting to see what the Welsh authorities do, so far they seem to be reluctant to make a decision. I sincerely hope that they will uphold British law. I appreciate that this would be hard on the Hindu community but I do not see how an exception to the rule can be made. There is many a farmer has seen his prize bull destroyed because of the law relating to TB and would have liked to see an exception made.
+
+Other dangers of multiculturalism have been illustrated in recent court cases in Germany:
+
+One example is of a Muslim woman who was beaten by her husband. The courts ordered him to leave her alone but he refused to obey the courts. She then sued for divorce but this was refused by the judge on the grounds that, being a Muslim, she should have expected this treatment. - A man beat his daughter unconscious and attempted to strangle her because she would not marry the man of HIS choice. He was charged with attempted murder but was put on probation 'because of his cultural background' - A man who murdered his wife was given a minimum sentence 'because she had violated his male honour derived from his moral concepts'.
+
+In this country we do offer more protection to women but even here there is a tendency to tolerate extremes of behaviour by immigrant men towards their women folk. Only recently we had the tragic case of Banaz Mahmod, a beautiful young Muslim Kurd who dared to associate with a Kurdish boyfriend from a different group. Her father considered that this association was a slight to his honour that could not be tolerated and so the family murdered her, strangling her with a shoelace. A number of people were happy to collude with this evil deed, collaborating in the murder and the disposal of her body. Earlier appeals by her to the police for help were ignored. Would the police have been so dismissive if she had not been a Muslim? Was there action influenced by our government's past tolerance of ethnic intolerance?
+
+The ethnic communities bond together against the police in support of their cultural behaviour and disregard of British law. Because of this it is possible, even probable, that many such murders of young women have taken place in Britain. It is easy to explain their disappearance by claiming that they have returned to their country of origin. Cultural beliefs are no excuse for violent or criminal behaviour, they should certainly never be accepted in mitigation for a crime. On the contrary, when the culprits are caught they should receive the most severe sentence possible as an example of the seriousness with which such crimes are regarded and as a deterrent to others.
+
+Sport
+
+The government is asking schools to increase the participation of pupils in sporting activities with an increased emphasis on competitive sports. Nobody can argue against the benefits associated with developing the physical fitness of the young neither, I suppose, can one deny the desirability of encouraging their competitiveness in our competitive world. For the last ten years at least, the government and other bodies have tried to encourage participation in sports by adults after they leave school. It was recently reported that in those ten years £3000,000,000, mostly of lottery money, has been spent on trying to achieve that aim. The same report claimed that, over that period, participation had increased not one jot. £3bn is a lot of money and one is left wondering where it all went.
+
+Personally I would question to what extent it is possible to encourage more people to participate in sporting activities. I believe that those who enjoy active sports will always find ways of doing something, even if it is only playing football with a tennis ball in the works yard during the lunch break. I would suggest, and the evidence would support that, that trying to use money to encourage greater participation is a terrible waste, rather we should use any money that is available to improve the facilities for and develop the talents of those who are keen. If that is made the objective it is possible that there will be a spin off that encourages others but that should not be the principal aim.
+
+Children in Care
+
+It is well known that children taken into care by local authorities are more likely to perform less well at school and ultimately more likely to be involved in petty crime and prostitution. It is a national disgrace and a matter that has been raised before in this Soapbox. At the same time we are told that a great deal of money is spent on the care of these children although, it seems, there is inadequate support for them once they become young adults. There was a recent proposal that these children should be sent to independent boarding schools during term time. This would certainly improve their chances of obtaining a better education, with all that that implies in terms of their prospects in adulthood. The surprising statement that was made by those that proposed this move was that boarding schools would cost less than keeping them in care homes. If that is true then why are we not sending all these children to independent schools now? I have no doubt that matters are not so straightforward, there would be problems and costs associated with providing the support during term time and the provision of care during school holidays. Nevertheless it would seem to be very worthwhile pursuing the idea if it is going to give these kids a better chance in life and reduce the future prison population.
+
+(Once again, however, the question arises in one's mind as to where all the money goes in child care. Why does it cost so much to keep children in care homes and why, despite all the money, they fail to take care of the children adequately. Just as, incidentally, it is surprising to learn how much it costs to keep people in prison.)
+
+Ron Watts

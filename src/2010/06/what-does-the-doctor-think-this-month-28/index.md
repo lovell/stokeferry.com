@@ -1,0 +1,24 @@
+---
+title: "WHAT DOES THE DOCTOR THINK THIS MONTH?"
+date: "2010-06-01"
+categories: 
+  - "village-pump"
+---
+
+Ian gets confused by Cockney Rhyming Slang!
+
+Cockney rhyming slang: I have been reminded about this twice recently; friends of ours, who hail from London, invited us to share their wedding anniversary in the company of Ruby Murray. Now, I was never a great fan of Ruby - her hoarse voice as a result of a childhood operation did not appeal to me - but I enjoy seeing anyone sing "live" and became quite excited about the idea. Anyone who had five singles in the Top 20 at the same time (as she did in 1955) must be worth seeing. It then occurred to me that she was probably well past her sell-by date and, in fact, she had died in 1996 at he age of 61years. Confused, I telephoned the friends who had issued the invitation to me met with great hilarity and the information that, in cockney rhyming slang, a Ruby Murray is a curry and they were celebrating with a meal in an Indian restaurant!
+
+The second reminder came in one of my favourite programmes, Ashes to Ashes, a programme about a non politically-correct CID officer in the 1970's. In the background of one scene was an old cockney comedian with a throwaway line He thinks Anita 'Arris is an operation for piles. Brilliant!
+
+All this reminded me of 1963 when I started at the London Hospital. For the first 18 months, I had "digs" in Barking, which was, in those days, very "posh". Mr and Mrs Smith looked after me for £4 per week, full board and weekends included with one bath a week on a Friday (always followed by the question "Feel lighter, do you?") They were a cockney couple from the East End who had moved out to Barking. They were real characters. Frequently, Mrs Smith would use rhyming slang, and her screaming tones would waft upstairs "Oh Gawd, she's done a King Alfred on the Holy Ghost!" (Daughter, Janet, had burned the toast). "Cor, Ian, have a butcher's at this" (butcher's hook = look). "Use your loaf" (loaf of bread = head) "I'll bet your plates are killing you" (To me after I had done the London to Brighton Walk - 56miles - undertaken by medical students every year. The prize for completing the walk was a tie and a tour of the Guinness Park Royal Brewery with as much as you could drink thrown in! The walk was sponsored by Guinness and Horlicks so we spent the night of the walk - it used to take me from 6pm one evening until 2pm the next afternoon - spaced out on Guinness and taking Horlicks tablets for energy. I expect Elfin Safety will have stopped the walk years ago as too dangerous. Oh yes, plates = plates of meat = feet).
+
+Mr and Mrs Smith were very predictable. Every Thursday night, the meal would be cooked sheep hearts. In those days, as now, I was grateful for any food I could get, I always ate the heart with gusto. Mr Smith was a supervisor for a building company called Marshall Andrews. He would sit at the dining table with a cigarette between his fingers, regaling us with the tale about how, when the company was 10,000 or so hours behind on a job, they would call him in and he would have the situation sorted out within a week. The ash column grew longer and longer between his fingers until, suddenly, Mrs Smith would shout "Smoking 'eavy, intcher?" which would startle him such that the ash fell onto the tablecloth and earned him another rattling.
+
+I remember buying them an ashtray on a stand for their wedding anniversary - how times have changed! Mrs Smith used to get very excited if any girlfriend appeared on the scene. Of course, in those days, there was little hanky-panky - remember the 4 weeks it used to take to reach the stocking top - and the girl would always sleep downstairs before being spoiled rotten by Mrs Smith the next morning! I have very fond memories of those days in Barking, tinged with other memories of very many hours buried in Gray's Anatomy and other tomes. Enough reminiscing - let's have some fun!
+
+One dyslexia sufferer to another "Can you smell gas?" Response "Smell gas, I can't even smell my name! Paddy, the electrician, was fired from the US Prison Service for failing to service the electric chair. In his defence, he told them that he considered it to be a death trap. Paddy and Mick were reading the gravestone inscriptions "There's a bloke here who was 162!" "What was his name?" "Miles, from London". Two couples decided to swap partners for the night. After three hours of amazing activity, Paddy said "I wonder how the girls are getting on". A Muslim was sitting next to Paddy on the 'plane. Paddy accepted a double whisky from the flight attendant who the asked the Muslim if he would like a drink. He replied "I'd rather be raped by a dozen whores than let alcohol touch my lips". Paddy handed his drink back, saying "Me too, I didn't know there was a choice!"
+
+Best wishes to you all
+
+Ian G. Nisbet

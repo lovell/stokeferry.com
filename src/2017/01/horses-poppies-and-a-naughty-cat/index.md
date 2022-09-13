@@ -1,0 +1,12 @@
+---
+title: "Horses, Poppies and a Naughty Cat"
+date: "2017-01-09"
+categories: 
+  - "village-pump"
+---
+
+I have had a wonderful time during November - and it is only half way through as I write this. First the London Eye with my lovely friends Elaine, Caroline and Jo- which included a Greek Lunch that seemed to incorporate the whole menu and then the next day a trip to Wembley Arena to watch the Lipizzaner Stallions strut their stuff. The latter was a late anniversary gift from Sherrie, daughter number two. However, Sherrie is the only member of our family who loves horses with a passion and has owned and ridden them since she was a small child. Throughout the show she gave us a running commentary on what each fancy foot work was called and how difficult it was and I had to nudge hubby a couple of times to keep him focused- I think he was remembering the cost, the smell and the cold nights we had to feed and water her darlings when she was ill or studying. Never the less, it was lovely to spend the evening with her even though we arrived - and left - with 87,000 football fans who were attending the Scotland/English match in Wembley Stadium . It was lucky that England won and the Scots were somewhat subdued on the way home. Another occasion I shall not forget in a hurry was our Annual Remembrance Service in All Saints, the Parish Church of Wretton and Stoke Ferry. We were privileged to have with us the Wereham & Wretton Scout, Cub and Beaver Troop together with their families. The church was packed, standards lowered and poppy wreaths laid. The troop and their leaders were absolutely brilliant and the service very moving. But what is next.... about a dozen of our church family are going to the theatre in Cambridge to see 'A Room with a View' next week, yes, including me, again with lunch, only this time Vietnamese -oh my waistline- no, I know I haven't got one! Then.....................It is Advent and then...................It's Christmas! From remembering the sacrifice made by all those men and women who gave their lives for our country, to now remembering that little babe who grew up to die so that we could know what the God, I believe in, is all about, Remembrance Sunday & Christmas have much in common - both are about love and sacrifice. By this we know what love is: Jesus laid down His life for us, and we ought to lay down our lives for our brothers. 1 John 3:16
+
+Merry Christmas and a Happy New Year
+
+ps Moses has lost another three collars since the last publication so keep your eyes open please!!!

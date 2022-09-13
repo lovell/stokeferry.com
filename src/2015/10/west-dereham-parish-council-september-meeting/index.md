@@ -1,0 +1,81 @@
+---
+title: "West Dereham Parish Council -September meeting"
+date: "2015-10-22"
+categories: 
+  - "parish-councils"
+  - "village-pump"
+  - "villages"
+  - "west-dereham"
+---
+
+DRAFT MINUTES OF THE MEETING OF WEST DEREHAM PARISH COUNCIL HELD AT WEST DEREHAM VILLAGE HALL AT 7.30 pm THURSDAY 3 SEPTEMBER 2015 PRESENT (6 Councillors): - Pam Bullas (PB), Claire Cann (CC) – Chairman, Tom Foy (TF), Paula Kellingray (PK), Lorraine Hunt (LH), Pam Walker (PW). Clerk: - Sarah Thorpe 10 members of the public were in attendance. Papers presented to Councillors: (i) Financial Management Report (spreadsheet); (ii) Expenditure (for approval); (iii) Glazewing Report; (iv) Budget for 2015/16 The Chairman welcomed everyone present and opened the meeting.
+
+1\. Apologies for absence. Apologies had been received from Claire Williams (CW) who was away, Cllr Brian Long (County Councillor) who was on holiday and Cllr Sandra Squire (Borough Councillor) due to family commitments.
+
+2\. Declarations of interest. No declarations were made.
+
+3\. Use of social media and audio recording of meeting. CC asked “Will anyone present be filming, recording, blogging, or tweeting during this meeting?” No member of the public present at this stage advised that they would.
+
+4\. Minutes of the Parish Council meeting held on 6 August 2015. CC confirmed all Councillors had seen the minutes of the Parish Council (PC) meeting held on 6 August 2015. These were agreed as a true record and signed by the Chairman.
+
+5\. Reports. 5.1 Chairman’s Report. 5.1.1 Garden of remembrance. CC advised that two designs had been drawn up by the landscape gardener that she had met with last month. These were on display at the meeting for parishioners to view and make comments on. More meetings would be needed with landscape gardeners to obtain other options. Parishioners would be kept informed and consulted before any decisions were made. 5.1.2 Notice regarding water supply at the cemetery. CC advised that the notice had been made free of charge and was now on display in the cemetery. A letter of thanks to be sent. 5.1.3 Handyman. The Handyman had now resigned, due to him leaving the village, but he would complete his last task on Saturday. The PC acknowledged that he had completed a lot of work since taking the role on and wished to express enormous thanks to him. 5.1.4 Grange Farm. CC advised that the scheduled visit had been cancelled at short notice by the tenants of Grange Farm. The reason given had been due to family commitments and they had suggested that another date could be arranged. In light of the fact that it had taken so long to be able to agree a date for this visit it was felt by the PC that this rescheduled visit was unlikely to be soon and therefore a letter was to be sent to insist on answers to questions that had been raised more than a year ago. Parishioners will be informed when more information is available.
+
+5.2 Clerk’s Report. 5.2.1 Land Registry layer of digital mapping software. The additional layer that was purchased following the last PC meeting has been added to the software package and had revealed that the area of land in question on Ryston Road was
+
+split into two parcels. Land Registry reference numbers have been obtained and the cost to obtain the details of the owner would be £3 per parcel. Clerk to apply for this information. 5.2.2 Visit to Frimstone. Frimstone have invited representatives from WD and Crimplesham PC to attend the site to hear their proposals for the future and to tour the quarry. The Clerk will attend along with CC and CW and this visit had been arranged for Tuesday 22 September at 4.30pm. 5.2.3 Cemetery gates and pillars. The proposed new pillars and gates can now go ahead as the BC had approved the planning application made by the PC. A meeting to be arranged with the contractor, who was appointed prior to the permission being obtained, to discuss the details. 5.2.4 Stoke Ferry Drainage Board. The BC have confirmed that the PC nomination of PW as a BC representative on the Stoke Ferry Drainage Board has been successful. 5.2.5 Allotment letters. Letters have been issued to allotment tenants as agreed at the last PC meeting. Notice has been given to the tenant of plot 3 that the tenancy has been ended by the PC and they had 30 days to clear the plot, if they wanted their deposit returning. The tenants of plots 8A and 8D had been given 30 days to tidy up their plots or the tenancy would be ended. Both of these 30 day periods expired on 11 September. Another quarterly inspection of the allotments by Councillors is due in September and it would be useful to arrange for this to take place as soon as possible after 11 September. Date to be agreed after the PC meeting. 5.2.6 Highways issues reported. Several items were mentioned at the last PC meeting that required reporting to Highways. All of these matters have been referred to them for action.
+
+5.3 Handyman’s Report. No report had been provided as no work had been carried out. The current Handyman had agreed to carry out one final task of installing the remaining dog waste bin prior to his departure from the village and the role. The PC had received an expression of interest in the vacancy and would be pursuing this matter.
+
+5.4 Police Report. PK advised that the police had advised of a crime involving damage to a dwelling in Stoke Ferry on 9 August and a pedal cycle had been stolen from a garden on Basil Road in WD on 12 August.
+
+5.5 Village Hall Report. PK reported that the village hall continued to do well and that bookings were up. Finance is currently stable. Repair work to the front doors to be carried out over the next few weeks.
+
+5.6 Broadband Report. PW advised that there had been no further update since the last PC meeting.
+
+5.7 Glazewing Report. Glazewing had issued their monthly report by email which covered the month of August. It advised that they were still in the process of submitting a variation to their planning permission to bring the permission into line with their environmental permit. Glazewing are currently in consultation with Norfolk County Council (NCC) on this matter and Richard Stimson, Compliance Manager, will attend a PC meeting to explain this further once the variation has been submitted. No complaints had been received in August. Glazewing are still concerned about intruders on site out of hours and are in the process of updating their CCTV. CC advised that the PC had included a notice regarding the final item in the last village magazine to draw residents’ attention to this issue as had been requested by Glazewing.
+
+6\. Finance. 6.1 Accounts. Accounts for approval and the monthly financial management report were submitted by the Clerk. She advised that the income and expenditure for July 2015 has now been confirmed, and that estimated figures for August have been inserted based upon invoices received. Expenditure continued to be in line with budget.
+
+Payee Cheque No Net VAT Gross Clerk’s salary, expenses for August 15 – 42 hours 100818 496.31 496.31 Mazars LLP – External Auditors 100819 100.00 20.00 120.00 CGM Ltd – grounds maintenance for July 15 100820 301.25 60.25 361.50 Mike Hastings – planning application for cemetery 100821 322.50 45.00 367.50 Pear Technology – annual tech support/land reg. layer 100822 275.00 55.00 330.00 Total 1495.06 180.25 1675.31 The above payments were considered and approved. Cheques to be signed at the end of the meeting.
+
+6.2 External Auditors Report. The Clerk advised that the Annual Return had now been completed by the External Auditors and that their report contained no comments or suggestions. It was therefore appropriate to consider that the PC had acted correctly in all matters affected by the Audit. It was agreed to display the ‘Notice of conclusion of the audit’ on the PC notice boards and website along with a copy of the External Auditors Certificate.
+
+6.3 Budget for 2016/17. Copies of the Budget for 2015/16 had been circulated to all. At this stage consideration was given to any additional items that should be added for 2016/17. The Clerk advised that the PC would need to give thought to funding the proposed longer term plans for replacing the current village signs and installing a water connection at the allotments. Additionally the cost of improvements to the garden of remembrance were unknown at this stage. Members of the public were invited to comment on the budget for 2016/17. No new items were identified at this stage.
+
+7\. Cemetery. 7.1 Improvements to the garden of remembrance. Further to item 5.1.1. CC advised that three quotations would be needed for the new design before the PC could make a decision and parishioners would be consulted before any decision was made. Information would also be passed to relatives in case they wished to be present when the work was done.
+
+7.2 Woodland Burial. Councillors had previously attended seminars on this issue and the PC was currently considering all of the information. PB had also provided some information to the Clerk and this would be forwarded to all Councillors. This matter to be discussed again at the next PC meeting.
+
+8\. Parish Assets. 8.1 Purchase of goal posts/hoops for recreation ground. CC advised that the Village Trust documentation did show funds of £1500 and that the PC would need to make a formal approach to the trustees of the Village Trust to release the funding for this purpose. The Clerk advised that the new goal posts/hoops could be added to the PC insurance for an additional premium of £10.26. Inspections would need to be carried out twice a year and documents held regarding the inspections. The insurance broker had also provided information from The Football Association on how they should be installed. Quotations would be needed for this work so the cost was not known at this stage. Clerk to obtain quotations.
+
+8.2 Street light on St Andrew’s Close. Notices had been placed in the village magazine regarding the future of the street light, in view of information obtained on the increased costs of maintenance and electricity. The notices had asked for parishioners to get in touch with their views. The Clerk advised that she had received no comments on this issue. Residents from St Andrew’s Close were present at the PC meeting and expressed concern for personal safety if the
+
+street light was removed due to an incident in the February where a resident had been chased up the path to her door and within a month had been present in her house during an attempted burglary. Residents also expressed concern about the safety of the area around the garages and the recreation ground; although they have their own security lighting this would not extend to this area. The PC were surprised and concerned that these incidents had not appeared in the police crime summary and PK agreed to look into this matter. A discussion took place on the future of the street light and it was agreed that it should be retained and converted to a LED lantern at a cost of £308.22 plus VAT. This would reduce the annual cost of maintenance and electricity to approximately £20.
+
+9\. Parish Council policies and documentation. 9.1 Data Protection Policy. The current document had been sent to all members prior to the meeting. It was briefly discussed and agreed that no amendments were needed.
+
+9.2 Risk Assessment. The draft document had been sent to all members prior to the meeting. It was briefly discussed and it was agreed that the amendment to include the War Memorial was acceptable. It was agreed to adopt the revised document.
+
+9.3 Allotment fees. A brief discussion took place on the current fees and deposit. It was decided that no amendment should be made to the fees this year.
+
+10\. Planning. 10.1 Applications. None received since the last PC meeting.
+
+10.2 Decisions. 10.2.1 15/01000/F Construction of gate piers and gates at access to cemetery on St Andrew’s Walk – the application had been approved by the BC.
+
+11\. Bus stop on Church Road. Clerk advised that she had contacted NCC and been assured that the school bus contractor was using the stop at the village hall and that if problems continued after the start of the new term the PC should get back to NCC and they would take the matter up again with the company concerned. Councillors noted that children had been seen waiting at the bus stop near the village hall. Details of the contractor running the service bus had been obtained and the Clerk had recently contacted them to ask them to use the village hall bus stop. A response had not yet been received. The PC would advise residents when the issue had been resolved.
+
+12\. Correspondence. 12.1 A letter had been received from the owner of Manor Farm advising that he was in the process of selling the farm and that the new owners from 29 September would be Albanwise. He advised that any agreement he had given to let residents walk around the farm would cease from that date. It was agreed that this information should be put in the next village magazine and that the Clerk would contact the new owners to establish the situation regarding the future of access to the permissive footpaths around the farm. 12.2 A response had been received from a resident on Church Road regarding a letter sent from the PC about the overhanging hedge. CC noted that the hedge had been cut now and advised that a reply would be sent to this letter. 12.3 Letters had been received from The Norfolk Hospice Tapping House and East Anglia’s Children’s Hospices (EACH) asking for the PC to consider making a donation. The PC makes no provision for donations to charity in the precept and
+
+the standard reply, which had been sent last year, to be issued advising them of the options available for an event to raise funds at the Village Hall.
+
+13\. Other Business – Any additional reports and items for inclusion on the next Agenda. 13.1 PW advised that she had received information on the next meeting of the Stoke Ferry Drainage Board which was on 9 September at 10.30am. She would be attending and provide feedback at the next PC meeting. 13.2 LH asked if the possibility of a softer white option for the new LED light could be explored. Clerk to make enquiries with contractor. LH also gave her apologies for the next PC meeting. 13.3 PK gave information on a proposed village open weekend over Easter 2016. This event was currently being planned and it was hoped that all village groups would be involved. 13.4 TF gave his apologies for the next PC meeting.
+
+The official meeting concluded at 8.53pm, and was opened to the floor for general comment.
+
+Open Forum. • A query was raised regarding access to the footpath from The Row to the village hall. CGM to be asked to look at the issue to ask if they can improve the access from The Row end. PW agreed to meet with them to explain the problems. • A query was raised regarding weeds on the footpath on Church Road where the overhanging hedge had recently been cut. CC advised that this is the responsibility of Highways but that due to continuing budget cuts many such issues were no longer carried out on a regular basis. The PC could consider taking this work on but would need to add this cost to the budget, which could result in an increase to the precept.
+
+Closure. The Chairman thanked everyone for attending, and final closure of the meeting was at 9.04pm.
+
+Next PC meeting is on Thursday 1 October at 7.30pm with Open Surgery from 7.00pm. Clerk: Sarah Thorpe Email: clerk@westderehamparishcouncil.com Telephone: 01945 430930
+
+Chairman’s signature …………………………………… Date ……………………………

@@ -1,0 +1,44 @@
+---
+title: "Academic Standards"
+date: "2002-04-01"
+categories: 
+  - "village-pump"
+---
+
+Part two of this month's soapbox
+
+Here we are again, approaching examination time, the annual torture for students. They have to forego many of the activities that they would rather be doing when they are just at an age when those other activities are so important to them. And, when it is all over, we will have the annual assertion by some that standards have fallen and the opposing assertions that they have not. It does seem, however, that the evidence that standards have fallen is overwhelming.
+
+For example:
+
+1\. Employers are claiming that new recruits with good qualifications, be they degrees, A levels, or GCSE grades, are not as capable as those with similar grades in the past. In some cases this must be a very subjective assessment but when it comes to subjects such as maths and science it can be quite clear if the individual is unable to perform the tasks that previous intakes could.
+
+2\. Universities are claiming that they are having to spend a large part of the first year bringing new entrants up to the standard that was once associated with their A level grades.
+
+3\. One examiner, Jeffrey Robinson, a retiring Chief Examiner in Maths for the Oxford and Cambridge Board, admits that the pass marks for each grade have been lowered. Of course there has been denials but surely he should know. For example Mr Robinson stated that the required mark for a C grade at GCSE Maths in 1989 was 65% and in 2001 it was 45%. What, one wonders, is the mark required for a D or E grade?
+
+4\. Even more recently an international panel, in a report to the Government's Qualification and Curriculum Authority, concluded that there had been 'grade inflation' of A level grades over recent years.
+
+One can identify a number of reasons for this lowering of standards:
+
+Over the years the examination requirements have changed. At one time it was necessary for candidates for A level to achieve a pass mark in coursework, which was set quite high, in addition to a pass in the examination, but it was the result of the examination that determined the grade and the course work pass was seen as a qualifying prerequisite. Nowadays the coursework often contributes to the overall assessment , perhaps by 40% or more, so that students with good coursework can achieve a pass or even a reasonably good grade whilst demonstrating in the examination that their understanding of the subject matter, and their ability to apply it, is abysmal. The assessment of coursework always presents a problem, establishing that it is solely the work of the individual is just one aspect. It is often difficult to determine how much opportunity there has been for help from parents or fellow students. If a teacher receives a poor piece of coursework he/she may ask for it to be re-submitted after indicating its shortcomings. Is the re-submitted work then partly the work of the teacher?
+
+Teachers themselves are keen to see their pupils achieve good grades a) because they want to see them succeed and b) because the grades that their pupils get reflects on their ability as teachers and on the standing of the school.
+
+In some instances multiple choice tests that contribute to the overall assessment are used. They have the advantage of greatly simplifying the marking, even allowing marking by computer, but clearly, just on a probability basis, it is possible for some to achieve a reasonable mark on such a test without knowing a thing about the subject. I know that it is possible to devise schemes for reducing this random effect, but it cannot be eliminated.
+
+Politicians are keen to raise the standard of education in this country and to take the credit for it. The overall effect is something approaching a conspiracy between politicians, teachers , examining boards and school authorities to push grades upwards.
+
+All of these factors will make it possible for a student with a certain level of ability and understanding to achieve a higher grade than a similar student would have achieved in the past. Of course it is likely that increased student dedication and improved teaching would produce some increase in the level of attainment of the students and some credit must be given to the teaching profession, but it is unlikely that the proportion of our young people having a high level of ability is increasing by leaps and bounds year on year. There is an argument that the proportion of entrants nationwide achieving A grades, B grades etc should be kept constant. This does have some merit in that it would ensure that the value of the grades would be maintained but it clearly has some disadvantages.
+
+In my view, the introduction of the new AS level examinations goes to further muddy the water and the proposal that more able students should be permitted to skip GCSE and go straight to AS level is positively retrograde. It will further lower the standard of the GCSE and will tend to demoralise those students not deemed bright enough to by-pass GCSE. We have been there before, of course. Once upon a time we had GCE's for the more able students and CSE's for the rest. The disadvantages were recognised and the two were combined to become GCSE, now they are effectively planning to split them once more.
+
+Unfortunately, many of the above factors apply equally to university degree courses. There is enormous pressure on the universities to admit more students. Tony Blair wants to see 50% of the population going on to higher education, when I was a young man it was just 3%. Universities are accepting entrants with lower grades and, since the standards of those grades are already lower, the level of ability of some entrants is far below what it once was. The situation is worsened further with a higher student/staff ratio due to the larger intake.
+
+Many of the colleges that subsequently became polytechnics had had experience of running external degrees of the London University, which were of a high standard. When the Polytechnics were created and they started running degree courses under the auspices of the Council for National Academic Awards (CNAA), the pressure was on them to maintain a high standard. They sought similar entry qualifications to some of the established universities and jealously guarded their standards, at that time a degree qualification had much the same standing wherever it was obtained. Needless to say, because they could not maintain quite the same calibre of entrant as the more prestigious universities there were far fewer first class honours from the polytechnics, but their first class honours were probably as good as any other.
+
+Today those former polytechnics are universities, they are recruiting larger numbers, mainly from the lower end of the ability range, from a pool which has been enlarged by extending the ability range downwards. I must admit that it is not all quite so black and white, some of the new universities will recruit some very able students because the institution has established a reputation in a certain discipline or because the location of that particular university suits that student, but the overall situation is clear. At the same time as the new universities are trying to increase their intake, the older established universities, also under pressure to increase numbers, are extending their acceptance range downwards, fishing in the part of the pool that was the prerogative of the former polytechnics. No one could tolerate a situation where a large proportion of those who were accepted on courses and worked to the best of their ability, subsequently failed to obtain their qualification and it follows that the combination of higher student staff ratios and lower ability intakes must lead to a lowering of the standards of degrees.
+
+Is the lowering of standards necessarily a bad thing? It is clearly highly desirable that every individual should be given the opportunity to extend their education as far as possible. The Government's aim of increasing the proportion of young people pursuing their education beyond the age of 16 is laudable but they must realise that the financial constraints on the less well off are formidable. Governments must also realise that initiatives for change in the system are not a substitute for real improvements in the education of our youngsters. If the lowering of standards does assist in achieving the aim of extending the education of more students it may be worthwhile. They will benefit as individuals and society and the nation will benefit overall (although the proliferation of degrees in subjects of questionable value to anyone rather undermines this argument). But, it is unfortunate that employers can no longer put as much reliance on a qualification as before, but maybe too much reliance was placed in the past.
+
+Ron Watts

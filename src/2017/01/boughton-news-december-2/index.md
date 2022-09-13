@@ -1,0 +1,14 @@
+---
+title: "Boughton News - December"
+date: "2017-01-09"
+categories: 
+  - "boughton"
+  - "village-pump"
+  - "villages"
+---
+
+News from All Saints Church Bistro Quiz This was a very enjoyable evening for all concerned. Pippa provided us with another excellent meal. No one ever goes home hungry from anything Pippa is involved in. Thanks to Tony and Maryse for donating the wine - again., and to those who brought sweet courses. We were spoiled for choice, as usual. Barbara Burton had written the quiz questions for us before she left, although we did have cause to check the accuracy of some of her answers. Hannah-Lou, May and I had great fun acting as quizmasters and the array of bottles for the raffle was astounding. Quite an array for a church function! Many, many thanks to all the people who came to take part, in good humour and great spirit. We were slightly down on numbers, as some people were away, but it was a very good event. Together with the raffle money, we made roughly Â£412 for church finances., due to the generosity of Robin and Pippa, Tony and Maryse. Make a date for next year in your diary.
+
+Church path If you’ve been down to the church, you will have noticed quite a significant change. In order to improve access for wheelchairs, we decided to widen the church path. Andy Beeston has been working on it and made a magnificent job. We now have an impressive chequer board effect path, twice the original width and with a turning circle for a wheelchair to access the ramp. Many thanks to Andy for all the hard work in very cold weather.
+
+Christmas The annual Boughton traditional service of Nine Lessons and Carols will be held on Tuesday 13th December at 7 pm. We can decorate the church for this on either Monday 12th or the morning of Tuesday. If anyone wants to come along and help, they will be most welcome, as will gifts of greenery holly with berries, especially welcome. As usual, if people bring plates of nibbles, etc in the evening, we can have a village get together. There isn’t a service at Boughton on Christmas Day, as we are in interregnum and relying on retired clergy to help us. They are doing a magnificent job, but they can’t be in eight churches. There will be a service of Holy Communion at 10 am on Christmas Day at Fincham. Fincham is large enough and central enough for all the churches in the group to access it easily. It is a service for all of us, so I hope to see many of you there. There will also be services on Christmas Eve at Wereham and Marham, for those who prefer a ˜midnight” service. All the services are shown elsewhere in the magazine. Sad news We are sorry to report the sudden death of John Savage on Sunday 6th November. John was one of the few remaining Boughton people, having lived here all his life. Our condolences to Janet, Helen and Trevor, and to the grandchildren.

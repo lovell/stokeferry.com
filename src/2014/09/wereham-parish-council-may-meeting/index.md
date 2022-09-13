@@ -1,0 +1,197 @@
+---
+title: "Wereham Parish Council May Meeting"
+date: "2014-09-08"
+categories: 
+  - "parish-councils"
+  - "village-pump"
+  - "villages"
+  - "wereham"
+---
+
+WEREHAM PARISH COUNCIL
+
+DRAFT Minutes of the Annual Meeting of the Parish Council
+
+13th May 2014 at 7.20pm
+
+Wereham Village Hall
+
+Attendance: Cllr Jo Bruce JB Chair Cllr Dave Deighton DD Vice Chair Cllr Phillip Norris PN Cllr Gail Koopowitz GK Cllr Karin Newell KN (arrived 7.40pm) Cllr Brian Bruce BB Cllr Roger Lankfer RL Nicola Cooper NC Parish Clerk (Minutes)
+
+Also in attendance: Cllr Martin Storey MS NCC Cllr Colin Sampson CS BCKLWN Victoria Gray VG Wereham Village Hall Committee Helen Richardson HR Wereham Village Hall Committee Ian Burton IB CGM Members of the Public: 4 Action 1.0 Election of Chair and Signing of the Declaration of Acceptance of Office
+
+1.1 JB put herself forward as Chairperson. Prop. GK, 2nd PN, All in favour Declaration of Acceptance of Office signed and witnessed. 2.0 Election of Vice Chair
+
+2.1 DD put himself forward as Vice Chair. Prop. JB, 2nd GK, All in favour.
+
+3.0 Appoint Staffing Committee Representatives
+
+3.1 GK, DD, RL and KN appointed. Prop. JB, 2nd PN, All in favour.
+
+4.0 Apologies for absence.
+
+4.1 Cllr Karin Newell and Victoria Gray both noted that they would be arriving late.
+
+5.0 Minutes of Meeting Held on 11th March 2014
+
+5.1 The wording of 5.4 was updated to note that signs were to warn motorists of pedestrians, not the other way around as stated. With this amendment the minutes were accepted as a true and accurate record. Prop. GK, 2nd DD All in favour.
+
+6.0 Declarations of Interest on Agenda Items and Dispensation Requirements
+
+6.1
+
+GK noted her interest as the Parish Council’s representative on the Wereham Village Hall Committee. 7.0 Matters Arising Not dealt with elsewhere on agenda
+
+7.1 (11/03 5.5) The Wood Store at West Dereham has been inspected by Norfolk County Council and no unapproved activity was found. All are advised to report any future concerns and this will be followed up on if necessary.
+
+7.2 (11/03 6.2) A quote has been received regarding updating of streetlamps. It was agreed that lights will be replaced as and when they fail, not as a whole. Prop. DD, 2nd GK, All in favour. It was noted that Stoke Ferry residents are not satisfied with their new streetlights.
+
+7.3 (11/03 8.2) RL advised that he has checked the play area after the herbicide spraying by CGM and that he is happy with the product used. He noted that it must be sprayed early in the morning to ensure that the area is not used before the spray dries. No further spraying is required on the play area at present.
+
+7.4 (11/03 9.2) there is still no progress on the Poplar trees safety issue. Clerk to chase and stress the danger of the situation. NC
+
+7.5 (11/03 9.3) The trees at the cemetery have been felled.
+
+7.6 (11/03 9.4) Approval from NCC for installation of two dog waste bins has been received and the bins have been ordered. Quotes from Bonnets have been received and it was agreed that the Clerk should progress to get these installed, the possibility of reusing the old post box post at Flegg Green will be tried, failing that a new post will be installed and a new post at Wigg and Furrow. JB will meet with Bonnets to show them the exact locations. An upper budget limit for installation of £150 for materials and labour from Bonnets was agreed. Prop. JB, 2nd GK, 4 in favour, 2 against.
+
+NC / JB
+
+7.7 (11/03 9.6) Enquiries with BCKLWN Planning enforcement with regards to Manor House wall non completion have shown that the Borough Council have no powers to order completion of the wall. It was agreed that the Clerk would contact NALC to ask advice on how much power the Parish Council has to demand this gets completed and subject to their response send a letter to the properties affected and the developer to progress completion. Prop. JB, 2nd DD, All in favour.
+
+NC
+
+7.8 (11/03 9.9) A letter was sent to the property owners at the Western boundary of the playing field but no response has been received. It was noted that a cement lorry accessed the property via the playing field recently. It was agreed that the Clerk should send a second letter to follow up on the first and advise that access to the property across the playing field is a health and safety issue and is a decision for the Parish Council to take not the property owners. Prop. JB, 2nd GK, All in favour.
+
+NC
+
+7.9 (11/03 13.3) The edging boards at the cemetery have been fixed (BB/DD)
+
+7.10 (11/03 5.2) Garden of Remembrance record is in progress. KK
+
+7.11 (11/03 9.5) KN to send details of bins to the Clerk to check if they can be reused with fortnightly emptying. KN / NC
+
+7.12 (11/03 9.7) PN has spoken to the resident concerned about anti-social behaviour of fishermen and the number of ducks increasing. It was confirmed that the fishermen urinating in the pond has not been repeated and that the RSPCA has removed some ducks therefore the resident is satisfied that no further action is required and that a sign would not be necessary.
+
+7.13 Ian Burton from CGM was present for a quick update on how the Grounds Maintenance was going. He advised that the Moorhens area was in hand to be tidied up (as discussed at the Annual Parish Meeting). There were a few incidences of timetables needing to be rearranged to work around village activities but these were workable. Ian has met with RL a number of times to assess work. No issues were raised from either side. The Village Fair on 7th September was discussed and Ian advised that they would check the field prior to the event and undertake an extra free cut if the grass is growing well.
+
+7.14 (11/03 12.4) RL advised that he has not heard anything from the IDB. NC was not aware if this needed to be advised by her. JB / RL to check, Clerk to follow up if needed. JB / RL / NC
+
+8.0 Correspondence Received
+
+8.1 BCKLWN: 9 Chalk Rivers Project: Spring and Summer Events (forwarded to all Cllrs) 8.2 Richard Snowden, Confirmation of recommendation to Full Council to Change the Primary School Catchment Area for Wereham to James Bradfield CofE Primary School, Stoke Ferry (forwarded to all Cllrs). 8.3 Norfolk Association of Local Councils: Weekly Updates (forwarded to all Cllrs) 8.4 Society of Local Council Clerks: News Bulletins (forwarded to all Cllrs) 8.5 West Norfolk Voluntary and Community Action and Healthwatch Norfolk details of an event for the not for profit sector in West Norfolk 1st May (forwarded to all Cllrs) 8.6 CGM - Notice that were unable to maintain an area of Queens Close due to a white van being parked on the verge (28/04/14) - Contracts received and signed. 8.7 Wicksteed – Fitness Legacy Zone Advertising. 8.8 Elizabeth Truss – Lloyds Bank Community Fund information (forwarded to all Cllrs) 8.9 Notes of last SNAP meeting and future dates (forwarded to all Cllrs) 8.10 Derek Lockwood – Email about issues following removal of Flegg Green Post box – response provided by DD. 8.11 BCKLWN Opportunities awards – requests for nominations (forwarded to all Cllrs) 8.12 G4 Diary Dates, Available from the Clerk.
+
+9.0 Standing Orders
+
+9.1 The proposed updated Standing Orders as circulated to Councillors prior to the meeting were discussed. All stated that they had read these through in detail. No issues were found and all were in favour of adopting these. The financial standing orders were to remain as is for now. Prop. JB, 2nd DD, All in favour.
+
+9.2 The legal change which allows the Council to have a single signature on cheques and therefore the possibility to bank online was discussed. It was agreed that for now the current system of dual signatories would be maintained and that the Clerk would be added as an authorised person to facilitate bank transfers and balance enquiries (not as a signatory). Prop. JB, 2nd KN, All in favour.
+
+NC
+
+10.0 Playing Field
+
+10.1 The proposed Playing Field Hire Agreement as circulated to Councillors prior to the meeting was discussed. The adoption of the agreement was agreed and a copy was passed to Mr Rye. Prop JB, 2nd DD All in favour.
+
+10.2 VG advised that the Village Hall Committee may be interested in taking over the management of the land between the Village Hall, up to and including the Play Area (NK408732). It is considered that, subject to agreement of the Village Hall Committee that the Parish Council would continue to be the custodian trustee of the land, but the land would be managed by the Committee, in the same manner as the Village Hall is at present. VG has gained initial legal advice on how this can be formally implemented and has a number of initial queries which require resolution before the committee can fully consider this. VG advised that the land could benefit the progression of a new village hall by providing options for drainage / ground source heat pumps / second stage developments such as outdoor seating etc. Financial and management responsibilities will need to be discussed in detail. It was agreed that the Clerk would: • Forward the initial queries to all Councillors for discussion at the July PC meeting. • Send the following to VG: Playing Field Hire Agreement; details of annual insurance for the play area; safety inspection charges; asset register for the play area; the last playground safety inspection report; cost of last 3 years maintenance; • VG to send a map showing land overlap of the play area between the PC and Heygates land to NC. Prop. JB, 2nd PN All in favour
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+NC NC VG
+
+11.0 Village Management Issues
+
+11.1 The Post Box – DD advised that Royal Mail have removed the post box at Flegg Green when installing the post box at the pond. There was no consultation with the Parish Council on this and Royal Mail will not discuss the matter further with DD as they consider the job completed. OFCOM have been consulted and advised that they cannot intervene as they feel there are sufficient numbers of post boxes in the village. Royal Mail have declined to attend a PC meeting. DD to send Royal Mail contact details to the Clerk for inclusion in the next G4 update in case anyone wants to contact them.
+
+  DD NC
+
+11.2 NC advised that BCKLWN had approached her about untidy street numbering along a section of Church Road which makes it potentially difficult for emergency services to locate a property. They advise that they can re number properties if the Parish Council requests it. It was agreed that the Clerk would write to the property owners affected and ask them whether they feel that their properties should be renumbered and advise that a majority vote from property owners would be taken on whether the matter should be progressed. The letter should also advise owners to be very clear on the location of their property to the emergency services in the meantime / should the numbering remain the same. Prop JB, 2nd DD, All in favour NC
+
+11.3 The clerk has a quote from CGM for mole control. It was noted that there is not a problem with moles at present and that the quote is not useable as they proposed using traps, which cannot be used on the field. It was agreed that this will be left at present.
+
+12.0 Village Hall
+
+12.1 GK summarised the Chairs report from the Village Hall Committee AGM. The following points were highlighted: • The flat roof at the back of the hall re-roofed and repaired, in addition to significant repairs to the flooring and porch. The bill totalled over £2,500. • The PC agreed our request for a restriction to be added to the land registry for the land the hall stands on and the disabled access path to prevent sale of the land • The New build Team presented the results of the community survey to the committee, highlighting that the 2 strongest needs to improve lives were for a village cinema & to be able to do sports/keep fit activities. 96% were in favour of a new village hall. • We’re now on facebook, with a following of 105 people who have liked the page enabling them to receive updates/pictures on events and updates on our funding progress. • Trustees indemnity insurance put in place. • Other improvements included a motion detector floodlight put at the porch, child friendly locks put on the toilet doors. A new gas switch cage fitted and the old one removed. A smart meter fitted by the electricity board and a rubber door bar purchased for the disabled entrance. • The New Build Team visited the funding team at Thornham Village hall who spent 2 hours sharing their experience and offering invaluable advice. The new build team also had a meeting the Jamie from the Lottery to discuss guidance on the stage 1 application.
+
+12.2 GK advised that the Village Hall gas heaters have been condemned and that two quotes have been sought for the replacement with two like for like heaters; these have come in at £3,800 and £6,500. These heaters would not be part of the new hall therefore it is unlikely that an application for external funding would be successful. There will be a minimum of 3-4 years use of the heaters before a new hall would be progressed to construction. Only like for like heaters can be installed due to asbestos behind the heaters. It was requested that the Parish Council consider financial support for this cost. Clerk to add to July’s agenda.
+
+ 
+
+  NC
+
+12.3 JB enquired whether there is an option for the Church and the Village Hall to merge until the new build is secured. It was confirmed that the Church has previously offered this to the Village Hall committee.
+
+13.0 Planning
+
+13.1 It was noted that all Councillors gave support to planning application no. 14/00237/F Construction of an Occupational dwelling Woodstock Farm. Cllr Colin Sampson confirmed that this will be discussed by the Development Control Board in June.
+
+14.0 Finance
+
+14.1 The Clerk presented the End of Year accounts as circulated to Councillors prior to the meeting. Approval was given for the Bank Reconciliation; Receipts and Payments and Balance Sheet. Prop. JB, 2nd KN, All in favour.
+
+14.2 It was agreed that 50% of the precept (£6,000) should be placed into an earmarked reserves fund to cover: possible treefall costs; playground health and safety; possible replacement of playground equipment; streetlights; Election 2015 costs; and clerks CiLCA training. Prop. JB, 2nd KN, All in favour.
+
+14.3 It was agreed that £5,000 should be transferred from the savings to the Community Account. JB and DD signed written request for this and JB to take this to Barclays. Prop JB, 2nd DD All in favour The possibility of a swept account will be looked into by the Clerk. JB
+
+NC
+
+14.4 NC presented the information required for the External Audit including the figures for the completed form (as 14.1), the updated asset register (as circulated to Councillors prior to the meeting) and the explanation of variances in the accounting statements. It was noted that the asset register should show 3 salt bins but that the figure shown was correct. All information was agreed. Prop JB, 2nd GK, All in favour.
+
+14.5 The Clerk noted that she is to send off the VAT refund claim amounting to £528.68. NC
+
+14.6 It was noted that there is a possibility of introducing a Chairmans allowance to cover out of pocket expenses for the chair. This would be an amount set aside for the Chair to claim, or not, at their own discretion. It was decided to leave this for now.
+
+14.7 Accounts were accepted to May 13th 2014. Prop JB, 2nd DD, All in favour.
+
+14.8 Cheques to be signed were agreed and payments approved including the renewal of the Aon insurance premium.
+
+RECEIPTS FOR PERIOD 12/03/14 – 13/05/14 14/04 £11,960 PRECEPT 14/04 870.00 COUNCIL TAX SUPPORT GRANT £12,830 TOTAL RECEIPTS
+
+EXPENDITURE FOR PERIOD 12/3/14 – 13/05/14 02/04/14 £32.18 EON STREETLIGHTS PAID BY DD 01/04/14 £189.60 CLERK MARCH SALARY PAID BY DD 14/04/14 £7.50 MEMBERSHIP OF SLCC PAID BY DD 01/05/14 £189.60 CLERK APRIL SALARY PAID BY DD 02/05/14 £31.14 EON STREETLIGHTS PAID BY DD £450.02 TOTAL DIRECT DEBITS
+
+FOR AUTHORISATION AND PAYMENT 13/05/14 CHEQUES: £19.06 GOOD COUNCILLOR GUIDES X 8 £141.12 NORFOLK ASSOCIATION OF LOCAL COUNCILS MEMBERSHIP £504.46 PEARCE & KEMP STREET LIGHT MAINTENANCE 2013/14 £36.00 DOG WASTE COLLECTION AND DISPOSAL £170.74 CLERK ADDITIONAL HOURS AND EXPENSES MAR / APR 2014 £566.88 GROUNDS MAINTENANCE MARCH AND APRIL £54.00 HIRE OF VILLAGE HALL NOV-MAR INCL £229.77 PURCHASE OF TWO GLASDON DOG WASTE BINS £450.99 AON INSURANCE ANNUAL PREMIUM £2,173.02 CHEQUES TOTAL Balance as per cash book at 13/05/14 Business Saver £17,399.77 Community Account (£577.89) OD \*\*£5,000 BANK TRANSFER TO BE ACTIONED TO COMMUNITY A/C BEFORE CHEQUES BANKED\*\*
+
+Prop JB, 2nd GK, All in favour.
+
+15.0 Parish Council Management Issues
+
+15.1 The appointment of John Cross, Internal Auditor, as recommended by Parish Clerk Sheila Goodwin was approved. It was agreed to cover Mr Cross’s expenses as requested. Prop JB, 2nd GK, All in favour.
+
+15.2 All were reminded to have a look at their Register of Pecuniary interests and update where necessary. The current forms are available on the BCKLWN website or from the Clerk.
+
+15.3 All agreed that they would act as playground safety inspectors on a monthly rota basis, with JB starting asap. The Clerk to compile a safety checklist based on the Wicksteed report and manage the process, Cllrs to return the completed checklist to the Clerk after undertaking their inspection. On presentation of any urgent issues Clerk to email all to agree resolution. Prop JB, 2nd DD, All in favour NC
+
+15.4 Clerk to set up a Wereham Parish Council facebook page. To discuss with NALC whether a social media policy is required before this is undertaken. Prop JB, 2nd DD, All in favour. NC
+
+15.5 The Clerk passed on a tip from NALC to set up individual Councillor email addresses to avoid personal addresses needing to be accessed in any FOI requests. The Clerk is able to set these up individually if required
+
+16.0 Councillors Concerns and Agenda Items for the Next Meeting
+
+16.1 PN advised that the issue of lying water next to the Manor House has been resolved through improvement works from Highways and that this has worked well in the recent wet spell.
+
+16.2 RL advised that the brambles along Cavenham Road are Highways responsibility not his should any complaints arise from overgrowth.
+
+17.0 Public comments / Questions
+
+17.1 It was highlighted that within the minutes of 11/03, 9.4 the correct place name is Wigg and Furrow. It was also stressed that it is very important for the village to support both the Church and the Village Hall.
+
+17.2 Cllr Martin Storey advised that from the 27th May 2014 Norfolk County Council would be run on a Committee system, not a Cabinet system, this will provide more openness. Contact details for Feltwell Parish Council were given should advice be required on Councillor led playground inspections. (Linda Peckham 01842 828002).
+
+21.0 Date of Next Meeting – Tuesday July 8th 2014, 7.30pm.
+
+Meeting Closed at 9pm.
+
+ 
+
+ 
+
+Confirmed as a true and accurate record of the meeting:
+
+  Chair……………………………………………………. Date……………………………………………..

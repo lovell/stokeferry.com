@@ -1,0 +1,24 @@
+---
+title: "What Does the Doctor Think This Month? Dubai"
+date: "2012-04-04"
+categories: 
+  - "village-pump"
+---
+
+**DUBAI**
+
+Our daughter, Charlotte, and her husband asked us to accompany them to Dubai for a week. My late friend, Paolo, the top flight hotel manager who, as you may remember from a previous article, irritated the Spanish authorities by refusing to install contraceptive vending machines in the bathrooms of his 7 star hotel, insisting that all his guests were perfectly happy to use the free shower caps provided in the bathrooms, had spent a lot of time in Dubai before he died; nothing he had said had encouraged me to put Dubai on the holiday list. Apparently, it is “brilliant” for shopping, probably my least favourite activity!
+
+For generations, Dubai consisted of 3 settlements around the mouth of its 9 mile long sea water creek with the fishing village of Jumeira some way away along the coast. The settlements were on the trade routes from Iran to Europe and traded mostly in pearls. The discovery of oil in the late 1960s led to great wealth and the development of Dubai as a major international city. As the oil would run out after 40 years or so, the ruling Sheiks started in 1980 to develop the city as a major attraction to commerce, business and tourism. Emirates airline was founded, many, many business centres and hotels were built, such that the skyline is now populated with a large assortment of enormous skyscraper buildings, some like daggers, some twisted like a corkscrew, one shaped like an enormous sail and one being the tallest building in the world (Burj Dubai) at about 2,700 feet, over half a mile high. At the base of Burj Dubai stands the largest shopping mall in the world, with several acres of fountains which provide a fantastic floodlit dance display to music every 30 minutes during the evening. The Palm Jumeira is a massive area reclaimed from the sea and sporting David Beckham's house, more than 30 hotels and resorts, with the 2,000 room Atlantis resort (and massive aquarium) at the tip.
+
+The development of the city has sprawled for miles along the coast and has completely subsumed Jameira, which now sports many beach hotels for the upper echelons of society! Talking of which, Dubai is now a playground for many of the rich and famous and is on the international golf, horse racing, tennis, cricket and film circuits. We kindly shared our hotel for several days with the English cricket team who had come over at the start of a disastrous tour. They were to play Pakistan in Dubai just after we left and kindly posed for (my) Management for photos in the pool.
+
+The Sheiks have turned the nearby desert into a playground for tourists – 4 wheel drive adventures, camel rides, nights under canvas, and so on.
+
+Deannie and I spent a wonderful evening having dinner on a cruise boat on the Creek (a Christmas present from some of the family). There seemed to be some delay in leaving the berth. A police boat appeared with flashing blue lights and a barge was towed alongside our vessel. Suddenly, we were treated to a massive firework display which went on at great speed for 10 minutes and was amazing. I counted the number of people on the boat, estimated the probable cost of the firework display and decided that, although I knew the evening had been expensive, the kids must have taken out a mortgage to fund our evening's entertainment. Mightily impressed! Next morning, I read in the newspaper that there had been a large firework display to celebrate the opening of the Shopping Festival. The display had started in the creek before other parts of the city became involved! We had been extremely lucky.
+
+The streets were paved with really expensive motor cars – Ferrari, Porsche, Maserati, Mercedes, etc, all so sleek and low that you would have to lie down to drive them. Each would cost the same as a four bedroom house in the UK. I wished I could have posed in my Espace, demonstrating my patent “open the door and step out” method of alighting.
+
+I seem to be out of step with the rest of the world in that the extreme wealth, the ostentation of the buildings and the size of the shopping malls left me cold. However, I loved the Creek area which, to me, is the heart and soul of the city, where “normal life” continues. Locals buzz about on wooden water taxis (20p a ride) and enormous trading dhows, like coastal steamers made of wood, piled high with engines, car parts, tyres, groceries, fabrics and spices ply up and down the creek to their berths. The local markets are buzzing, stock is stored on the pavements without fear of theft, and I could spend many happy hours there.
+
+My fears about shopping proved unfounded. The malls were full of really expensive, top-of-the-range shops, almost completely empty of people. Head office priced up some Clarins make-up, discovered that it was

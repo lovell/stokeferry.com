@@ -1,0 +1,16 @@
+---
+title: "The Village Pump Soapbox"
+date: "2003-07-01"
+categories: 
+  - "village-pump"
+---
+
+Immigration
+
+I have commented before on my concern over the high levels of immigration that appear to be occurring, whether by legitimate immigration, asylum seekers or illegal immigrants, and the apparent failure of successive governments to get on top of the problem. In my opinion the consequences of the continuing high rate of immigration into the UK represents a bigger threat to the British way of life than the European Union ever will. I am not at all sure that I welcome the concept of a multi-cultural society. I understand that there are many people in the world who have levels of income that we would regard as impossibly small and who have appalling living conditions. It would be nice if we could lift them from their grinding poverty. The problem is that there are at least 2billion of them and we cannot go on welcoming them to this crowded island. What we should be doing, of course, is providing much more help to enable them to improve their lot in their own countries, but that is not just down to us, the UK is already providing a greater proportion of its GDP for overseas aid than most of the wealthier nations, although I do think that we should be doing more.
+
+What has caused me to 'pick up my pen' again on this issue is the number of commentators that I hear on the radio/TV or in the press who argue that we benefit from allowing large scale immigration. I will admit that some immigrants have proven to be entrepreneurs that have generated jobs and wealth but there are much larger numbers that have had to be subsidised by the state. The final straw for me came when I saw an article in a leading national newspaper with the headline "Let people come here from all over the world". The article went on to argue that we needed these immigrants to support the pension requirements of our ageing population. What rot! It sounds very much to me like pyramid selling. What do we do when these immigrants grow old? Invite even more to support them? We have over 1.4 million unemployed at this time, a significant proportion of whom are first or second generation immigrants, let us get them working before we worry about bringing in more people.
+
+On a separate issue I recognise that future pension provision is a major issue and, once again, our politicians have been slow to get down to introducing measures to combat the problem. I do not like the current proposal to introduce a levy on all pension schemes to provide a reserve to protect employees in schemes that go bankrupt. The usual reason that these schemes go broke is because the companies controlling the funds dip into them to cover their business losses, or because, in the event of bankruptcy, the pension fund is seen as one of the company's assets. The existence of an emergency pool of money would only encourage the unscrupulous to rob pension funds. Why is it not possible to ensure that the pension funds are divorced from the companies operating them so that they are not seen as a company asset, then, if the firm gets into difficulty, it cannot access the money in the pension scheme? I would have thought that, after the Maxwell affair, this would have been sorted out once and for all.
+
+Ron Watts

@@ -1,0 +1,28 @@
+---
+layout: layout.njk
+---
+<div class="col">
+    {% for article in pagination.items %}
+        <section class="row pb-4">
+            <h3 class="fs-5">
+                <a href="{{ article.url }}">{{ article.data.title }}</a>
+            </h3>
+            <h4 class="fs-6 text-muted">
+                {{ article.date | monthAndYear}}
+            </h4>
+            <p>{{ article.templateContent | striptags | safe | truncate(100) }}</p>
+        </section>
+    {% endfor %}
+    <div class="row">
+        <div class="col">
+            {% if pagination.href.next %}
+                <a href="{{ pagination.href.next }}">← Older articles</a>
+            {% endif %}
+        </div>
+        <div class="col text-end">
+            {% if pagination.href.previous %}
+                <a href="{{ pagination.href.previous }}">Newer articles →</a>
+            {% endif %}
+        </div>
+    </div>
+</div>

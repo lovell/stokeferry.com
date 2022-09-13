@@ -1,0 +1,10 @@
+---
+title: "Westminster Diary"
+date: "2017-09-05"
+categories: 
+  - "village-pump"
+---
+
+ 
+
+Last month I joined representatives from Stoke Ferry Parish Council and Downham Market Town in a meeting with the Managing Director of British Sugar, Paul Kenward. Discussions focused on the strong smells that have been noted in the local area. Concerns have been raised with me that a possible source might be the British Sugar operation at Cornerways Nursery near Wissington. In 2016 a decision was made by British Sugar to move from the production of tomatoes to producing plants for the pharmaceutical sector. The plant grown is a member of the cannabis family and is used in Epidiolex. It is reported to have shown very positive results in the treatment of childhood epilepsy. Harvesting of the first crop took place during the month of June and this appears to coincide with the reporting of the smells. An environmental specialist and odour consultant have been engaged to investigate the issues raised and if necessary, investment will be made in appropriate odour control equipment. I think everyone recognises the importance of the work done at the factory but it should not adversely impact on the surrounding towns and villages, subsequently I have asked British Sugar to keep me updated on developments. The Weeting Steam Engine Rally and Country Show once again delivered a three day extravaganza of classic and historic vehicles – all shapes and sizes! Nearly 600 classic cars and vintage tractors, from the tiny steam engines operating fair-ground carousels to the giant work horses hauling passengers and equipment. I was granted the rare privilege of touring the Rally in a 1910 Silver Ghost Rolls Royce. Quite spectacular, just recently returned from a trip to the Swiss Alps and now supporting the classic engines in Weeting. With over 20,000 visitors expected to attend during the three-day extravaganza, this is definitely worth putting in the diary for 2018 – 20, 21, 22 July. Next year will be the 50th anniversary, so the Weeting Rally will be sure to put on a fantastic celebration.

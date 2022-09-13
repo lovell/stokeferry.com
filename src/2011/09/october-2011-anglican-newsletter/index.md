@@ -1,0 +1,30 @@
+---
+title: "October 2011 Anglican Newsletter"
+date: "2011-09-27"
+categories: 
+  - "village-pump"
+---
+
+At my (advanced) age, I am beginning to realise how lucky I am. I was born just before the start of the 2nd World War. The War does not impinge on my memory very much – I was only 5 when it finished and I had spent the first (worst for people living in England) three years in India, a long way from the battles. Clearly it was terrible – in different ways to the horrors of the 1st World War. The Holocaust was far more terrifying than the Trench war, bad though that was.
+
+But by the time I was a thinking member of society – by the time I was 10 or 11, the War was long gone, even though the remnants of rationing, etc were still there. I was lucky enough to go a Grammar School, although both my brothers had difficult schools to go until they found their way into a military boarding school, where they both thrived. We lived in London in a small flat. My mother did not go back to work until long after I had left home – concentrating on bringing up her family (the youngest did not leave to go to University until I was already in my 30s, married and with the beginnings of my own family). My father had a good job, obtained in the 40s when it was difficult for ex-servicemen to get jobs. He did not earn a lot – we ran out of money 3 or 4 days before the end of every month – and he had to give up the bus and walk to work –a long way - and our meals were just bread and jam.
+
+But we, as children had charmed lives. When we lived in Bedford, at 7 or 8 years old, on Saturdays I would walk miles with my 2 years younger brother to the Ouse out in the country, where we would swim and play all day, without supervision and apparently without danger. When we moved to London, we would walk to Hyde Park or Regents Park and play all day, again without supervision.
+
+Life was never easy for my parents, financially, but we always seemed to have enough – never went hungry – always had clothes to go to school. We had no car and only a 9” TV. Computers and words beginning with e- had not been invented. We were all aware of the Cold War and the threat of nuclear oblivion, but it seemed far more remote than the threats of terrorism on your doorstep nowadays. We walked miles to school or caught buses. We had no concerns about being accosted. Burglars were just that – they did not arrive with weapons and casually beat people up and trash their houses.
+
+Come the 60s, we had the excitement of Rock ‘n Roll, Elvis, the Beatles and Carnaby Street. What seemed then way out, today looks innocent and even childish. But as a nation we were happier with that than today’s nation of workaholic, worried, sarcastic, unfriendly, jealous people that we now seem to be.
+
+I know that I look back with rose-tinted specs and that I look around me as a reactionary old ----. I know that women were socially limited by their susceptibility to pregnancy, that they were treated (not as second class citizens, but) as differently classed citizens to and by men, who had the whip hand, but there is many a woman today who would happily exchange her freedom and responsibilities for the dependence of yesteryear. I k now that there were many workers who were paid too little for a hard week’s work – but that has not actually changed!
+
+I don’t think it was 9/11 (the10th memorial of which we have just ‘celebrated’) that changed the world, but it was symptomatic of the changes. Too easy communication and travel has made us better invformed, but apparently less wise. Children with calculators, e-books and games machines can no longer read, write or count. _\[Today, it took the lady in the Post Office (__NOT Stoke Ferry PO!)_ _6 efforts to work out that 90 stamps involved 7 books of 12 plus 6 extras – and then she got it wrong again and sold me two more, but I could not be bothered to try yet again to sort her out!\]_
+
+I am lucky because I can look back on a more peaceful, friendly time, when street parties were arranged because we enjoyed them, not because someone thinks it would be a good idea and after tremendous effort induces others to join in. We went to Church because it was a nice, communal thing to do on Sundays. Sundays were restful, because the shops weren’t open, there was no football or cricket on. The summer holidays were spent on cold English beaches (except we thought that was the norm, so we did not care) – colder than nowadays – the only sun treatment was olive oil to try to fry some colour onto the skin– 700F was very hot – now it has to be 800, before we take our sweaters off.
+
+This gentle tirade is possibly meaningless, but I would hope not. The memories are real, the differences do exist. The most important difference is that we no longer like and trust people by default. No respect is due automatically to someone older or better qualified or more experienced. Everyone now expects rights, then we had responsibilities. Parents controlled their children. Children, like dogs, were happy knowing where the boundaries were. Terrible as it is to say it, but The Lord of the Flies is looking less and less like a simple novel about an extreme situation and more and more like prescience. We increasingly take comfort in our myriad of CCTV cameras (look at the calls for more of them following the recent city riots), without checking to see how far we have gone down the road to Orwell’s 1984.
+
+Going back is usually impossible and virtually always unadvisable. So how do we go forward with our barrage of technology and remain truly human. It can only be done by human contact – because humans are social. Contact via Face Book and Twitter may be the way forward, but that still has to be proved. Because the contact has to be trusting and friendly if it is to impact on our society positively.
+
+Jesus said ‘Love thy neighbour’. Whatever else you may think about him or his followers, that invocation remains right, powerful and still a long way from being universally achieved.
+
+Keith MacLeod

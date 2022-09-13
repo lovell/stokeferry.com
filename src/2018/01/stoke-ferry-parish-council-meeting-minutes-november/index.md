@@ -1,0 +1,136 @@
+---
+title: "Stoke Ferry Parish Council meeting minutes- November"
+date: "2018-01-22"
+categories: 
+  - "parish-councils"
+  - "stoke-ferry"
+  - "village-pump"
+---
+
+STOKE FERRY PARISH COUNCIL DRAFT Minutes Subject to the Approval at the next Meeting Ordinary Meeting of the Parish Council Wednesday 1 November 2017 at 7.00 pm Stoke Ferry Village Hall
+
+Attendance: Cllr Sue Lintern Chair Cllr Janet Taylor Vice Chair Cllr Trudy Mann Cllr Shirley Cordner Cllr Daphne Clements Cllr Mandy Leaman Cllr Jim McNeill Helen Richardson Parish Clerk and Financial Responsible Person
+
+Also in attendance: Cllr Colin Sampson Borough Council of King’s Lynn and West Norfolk Cllr Martin Storey Norfolk County Council Mr C Philpott Footpath Warden
+
+Members of the Public: 44 in attendance reduction to 28 from item number 101/17
+
+99/17 Apologies and Welcome
+
+There were no apologies.
+
+100/17 Consider Declarations of Interest on Agenda Items and Dispensation Requests
+
+Cllr Shirley Cordner declared an interest in the item relating to Parish Partnership funding due to its location.
+
+It was agreed at this point to go out of standing orders to hold a public meeting to discuss 2Agricultire Mill, Stoke Ferry. Attendees to this meeting in representation of the2Agriculture Mill were Gavin Berry, Managing Director and David Mellady, Compliance and Health & Safety Officer; Kate Penn, Quality Officer of Environmental Health at the Borough Council of King’s Lynn and West Norfolk and Steve Livsley, Regulatory Compliance Officer, Environment Agency. Proposed Cllr Janet Taylor, seconded by Cllr Daphne Clements, all were agreed.
+
+Following the discussions, it was proposed to continue back into the agenda for the meeting proposed by Cllr Janet Taylor, seconded by Cllr Jim McNeil, all agreed.
+
+101/17 Minutes of the Meeting dated 4 October 2017
+
+The minutes of the Ordinary Parish Council Meeting held on 4 October 2017 were approved. Proposed. Cllr Janet Taylor, Seconded Cllr Trudy Mann, all agreed.
+
+102/17 Matters Arising from the Minutes
+
+The following items were raised as matters arising:
+
+• Cllr Shirley Cordner that a new filtration system has been installed and there had been a harvest with no odour release from the British Sugar factory. • The Clerk had reported the hedges on the A134 junctions to highways. • The Clerk would report the drains outside 2 Tucks Cottage and 12 Wretton Road to Highways. • The Clerk was ordering the bin for the garden area and was liaising with the Handyman on its delivery and installation. • The Clerk and Cllr Janet Taylor were progressing quotes for the cemetery wall for the December meeting. • The Clerk had emailed Andy Wallace, Manager of Norfolk County Council Highways on his views regarding the provision of double yellow lines on the corner or Furlong Road and she would be chasing a response. • The Clerk was investigating alternative streetlighting suppliers for comparison of costs. • The Clerk had received a map from the Chair and various issues with footpaths that she was going to report to David Mills. • 2Agriculture, the Borough Council and Environment Agency had attended the meeting to discuss the various concerns of noise, dust and vehicles from the factory with the Parish Councillors and residents. Discussions and identified actions for follow up were:
+
+o The phone number for reporting of concerns by residents to go on the Stoke Ferry Parish Council website. o Copy of the Environmental Agencies Permit to display on the Stoke Ferry Parish Council website. o Acknowledgement that they had a long-term strategy to review the operation of the factory to either continue or not continue in the village. o Cllr Shirley Cordner offered her property as a sample point and Kate Penn acknowledged this offer. Kate advised they would use a ‘dust Frisbee’. o Cllr Martin Storey to report back on any costs from Norfolk County Council to the Borough Council for air quality monitoring. o Gavin Berry agreed to consider a report regarding a piece of masonry falling from the properties they own. o The Clerk to chase up on costs of analysing samples from resident’s properties with the Borough Council. Potential for the East Anglia University to undertake. o Display of contact details of the Factory for those who wish to have a tour of the facility on the website. o Gavin Berry advised that he would be happy to work with the Parish Council on an emergency plan and would contact the Clerk once discussed internally. o Cllr Mandy Leamon advised that the footpath and field had been cleared by the factory since the Parish Council’s enquiries.
+
+103/17 Parish Councillor Vacancies
+
+Councillors had met privately with Grant Tomkins in his application to be considered for Parish Council membership. All were in favour in accepting his application. He had received the code of conduct and declaration of acceptance form prior to the meeting to read and formally signed them before joining the meeting at this point as Cllr Grant Tomkins. The Parish Council noted there was still one vacancy.
+
+104/17 Parish Partnership Funding
+
+Five items had been identified for possible funding. After discussion it was agreed to bid for a double dropped kerb to be installed outside the school at a cost of £550, half funded by the Parish Council and half Norfolk County Council. Following a show of hands seven were in favour, and one was against.
+
+It was also agreed for the Clerk to seek quotes on eight white gates from Stoke Ferry Timber to compare with costs already received. It was agreed for signs on the gates to be considered later.
+
+It was agreed not to pursue a sign for the playing field. The Clerk agreed to ask Norfolk County Council to consider installation of bollards outside the school as part of their usual programme of works. The Clerk agreed to follow up enquiries about yellow lines at the corner of Furlong Road/Lynn road with highways.
+
+Resolved: 1) To bid for a double dropped kerb outside the school. 2) To seek further quotes for eight white gates and present to the December meeting. 3) Clerk to contact Norfolk County Council and ask them to add bollards outside the school on their usual programme of works. 4) Clerk to chase up (highways recommendation/comments) regarding double yellow lines on corner of Furlong Road/Lynn Road with highways.
+
+105/17 Planning
+
+a) Comments Required – 17/01880/RM – Reserved Matters Application for proposed dwelling at Plot 2, Land Adjacent Hazel Dene Greatmans Way Stoke Ferry Norfolk. Proposed. Cllr Janet Taylor, Seconded Cllr Jim McNeil, 7 in favour, 1 abstain. b) Comments Required – 17/17/01951/RM – Reserved Matters Application: construction of two dwellings at Land Between 11 And 12 Buckenham Drive Stoke Ferry King's Lynn Norfolk PE33 9SG. The Parish Council wished to return comments that though the entrance had been revised there was still concerns that cars would be crossing a footpath where children walk to school. There was also concern of cars travelling to the garages was currently a walkway particularly used by children and there were safety issues and ‘blind spot’ issues. c) Decisions Received: 17/01801/RMM Stoke Ferry Land South of Lark Road Stoke Ferry Norfolk – Reserved Matters: Residential Development for 12 dwellings Application Withdrawn. 17/01568/F Stoke Ferry The Old Hatchery High Street Stoke Ferry Norfolk PE33 9SF - Construction of storage/workshop building Application Refused. Greatmans Way, Holiday Homes Appeal – refused.
+
+106/17 Cemetery Maintenance
+
+It was agreed to cut the grass in the Cemetery as well as the playing field for one more cut over the winter. Cllr Sue Lintern agreed to check the contract if this provision had been made previously. Proposed. Cllr Janet Taylor, Seconded Cllr Mandy Leamon, all agreed.
+
+Resolved: That the Clerk advise the Mr Sparkle should an extra cut not be included in the contract to the Playing Field and Cemetery.
+
+Cllr Janet Taylor advised that there had been a complaint following an approximate 30cm length of plastic cable being found on a grave. After investigation it was not to be of the grounds maintenance contractor’s equipment and may have come from elsewhere.
+
+There was discussion on the installation of plastic grass in the cemetery. Cllr Daphne Clements agreed to seek a sample from the applying person and the clerk agreed to find out if there were companies that provided installation services. There were concerns that it could damage equipment of grounds maintenance contractor as they go near the edge, colours would fade, and other users of the cemetery may not approve of its installation. The Parish Council were advised that this was because of maintenance issues where the person didn’t require strimming services of the grounds maintenance contractor and were unable to maintain themselves. It was agreed to discuss further at the December meeting.
+
+107/17 Handyman Job List
+
+Cllr Janet Taylor advised that the handyman was to attend to the bus shelter and he was planting bulbs that had been donated.
+
+108/17 Rangers Items for Notification – There were none.
+
+ 
+
+109/17 Public Rights of Way (Footpaths/Bridleways)
+
+Cllr Sue Lintern advised on the last walk there had been no issues. A resident volunteer had agreed to stage the next walk and would seek maps from the Clerk. The Clerk was progressing various issues with David Mills, Public Rights of Way Officer at the Norfolk County Council.
+
+110/17 Asset List of Parish Owned Street Furniture, Street Lights and Bins - There was no update.
+
+111/17 Approval of Payments
+
+That the following payments presented are approved:
+
+Payment of Bills MONTH OF OCT Net VAT Total Eon DD October - Street Lights 55.59 2.78 58.37 Glazewing DD Bin Emptying 23.37 4.67 28.04 Mazars External Audit 150.00 30.00 180.00 Westcotec Street Lighting Maintenance 15.44 3.09 18.53 Helen Richardson Clerks Wages and Expenses - Oct 263.95 0.00 263.95 HMRC (PAYE) October 62.40 0.00 62.40 Norfolk ALC Cemetery Management Course 110.00 22.00 132.00 Mr Sparkle Village Maintenance - October 204.00 0.00 204.00 Handyman October Services 32.00 0.00 32.00 Village Hall Hire of Village Hall - Nov 2017 30.00 0.00 30.00 Revised TOTAL 946.75 62.54 1,009.29
+
+Proposed. Cllr Shirley Cordner, Seconded Cllr Mandy Leamon, all agreed.
+
+112/17 Remembrance Sunday
+
+Cllr Shirley Cordner and Cllr Janet Taylor were attending, and possibly Cllr Sue Lintern.
+
+113/17 Summer Fete - Deferred to December for discussion.
+
+114/17 Christmas Arrangements
+
+The Parish Council identified a tree in the Churchyard to place white Christmas lights on. The date for the switch on would be 1st December at 6 pm. Cllr Daphne Clements agreed to arrange adverts. It was agreed that spend on new lights would be to a maximum of £250 and Cllr Janet Taylor would purchase. Proposed. Cllr Trudy Mann, Seconded Cllr Shirley Cordner, all agreed.
+
+115/17 Update on the Website
+
+The Clerk advised that the website www.stokeferryparishcouncil.co.uk was now live. She was arranging training with the creator.
+
+116/17 Purchase of Filing Cabinet
+
+The Clerk required a new two draw filing cabinet, costs would be maximum £105. This spend was agreed.
+
+ 
+
+ 
+
+117/17 Policing Issue Event
+
+Cllr Shirley Cordner attended an event hosted by the Police at the end of October. She advised that there was 15 Parish Council’s in attendance. They advised that they have access to horses and quad bikes and new police cars were in use. There were two speed vans covering the whole of Norfolk. She shared that he had registered her interest in providing the Post Office as a Volunteer Police Point. The Parish Council thanked her for attending.
+
+118/17 Norfolk PCSO’s – Stakeholder Consultation by Unison – There were no comments.
+
+119/17 Battle’s Over – A Nation’s Tribute 11 Nov 2018 - Deferred to January.
+
+120/17 EU Quotas on Sugar Beet - Cllr Jim McNeil agreed to contact British Sugar to find out if there were implications.
+
+121/17 Urgent Items as agreed by the Chairman - There were none.
+
+122/17 Forward Agenda List - This was noted.
+
+122/17 Public Participation and Councillors Items
+
+• Cllr Jim McNeil proposed for new owners of the pub to attend a meeting to introduce themselves. It was great news that this was open again. • The primary school was looking for parent governors if anyone was interested to apply direct. • Cllr Colin Sampson advised that regarding earlier discussions about air quality monitoring equipment in the village, that this costs around £10k and where this was owned it would not be possible to share. He thought that there would be action by the Borough Council on how to best test dust from the factory and advised the Parish Council to await a response which may take some time and not expect for it to be a quick process. Following a query Cllr Colin Sampson advised that the Environment Agency couldn’t test outside the factory boundary, as within the factory was their remit. Cllr Sue Lintern added that the Borough Council had monitoring equipment but needed to source an electric supply. Cllr Colin Sampson agreed to discuss with Dave Robson at the Borough Council. • Cllr Martin Storey stated that most residents seemed to have concern over dust near their homes and gardens and believed that the amount of reports warrants something more to be done by the Borough Council. • Cllr Martin Storey advised all to view the Norfolk County Council website for latest information on what it was doing and there would be no closures to libraries within current budget reviews. • Cllr Colin Sampson advised that there would be a loss of 151 PCSOs but creation of 81 Police Officers. He added that new Police cars had caught 19 people in 2 weeks. • Comments that if white gates suggested were wood they would need replacing every 5-10 years. • 30mph signs near cemetery had overgrown shrubs in front of them. The Clerk agreed to report to the Handyman to cut back. • There were numerous parking issues along Furlong Road opposite the Post Office. The Parish Council advised there was no restrictions in place and would be a highways matter.
+
+123/17 Date and Time of Next Meeting
+
+Wednesday 6 December 2017 at 7.00 pm. Cllr Mandy Leamon gave her apologies due to personal commitments. CS also advised of his apologies for the December meeting.
+
+Meeting closed at 10.15 pm

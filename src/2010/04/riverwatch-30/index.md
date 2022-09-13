@@ -1,0 +1,20 @@
+---
+title: "Riverwatch"
+date: "2010-04-01"
+categories: 
+  - "village-pump"
+---
+
+Another stirring tale from the banks of the River Wissey
+
+The rain crashed down with a mix of snow. It was dark and cold and the sort of day when all sensible people just stay indoors in front of a roaring fire. Not me - I was the clever dick who disregarded the weather forecast and there I was stranded under a fishing umbrella staring out at 'water water everywhere'.
+
+A strong gale blew up the river and added crests to the already waves. The water looked pitch black and unwelcoming. The rain was endless and had been so for weeks. Fields were flooded and the narrow track down to the river Wissey was a sea of mud. It was so bad that vehicles had to be abandoned and rubber boots used to complete the journey. The river itself was fast and furious and overflowing. A section of bank had collapsed and it was difficult to see where the river started and stopped. Even the puddles were no longer puddles and resembled lakes. Whilst such weather is part of our heritage our daily dosage was becoming somewhat worrying. I have to own up that an hour or so earlier I had admitted to myself that I had made an error of judgement but this had been the day of the week set aside for fishing and so there I was! I sat hunched up under my precarious shelter when suddenly the wind increased and the deluge changed to sleet. I was well and truly trapped!
+
+So it all continued for a while but then the rain stopped! It stopped without warning - cats and dogs and then nothing! The dark sky noticeably became lighter and lighter. The overcast dull and drab of all about brightened and even a faint glimmer of blue appeared between a gap in the clouds. A large flock of geese arrived on the wind and circled before landing on the water with an almighty crash. They immediately commenced squabbling with the numerous males chasing the, alas, few females. It is that time of the year and these males certainly do not take 'no' for an answer! Two cormorants then appeared from nowhere and lazily glided backwards and forwards and round and round surveying the precious fish stocks. An adventurous moorhen poked its head out of the reed beds and decided that normality had returned and started what seemed an epic journey up the river and out of sight. A larger than life wave of field fare evolved with great chattering and after a short display settled in faraway bushes. A whole new change was forming. A new atmosphere had taken place in a matter of minutes. Not to be outdone a skinny robin hopped by with his begging bowl and cocked his head to one side pleading for a crumb. Finally the resident heron came out of hiding and assumed his familiar position high in the branches of a long deceased tree and just watched. Everyone was now out and about. The wind lessened and was replaced by a breeze and a mere ripple broke the surface. At last I could break free from my umbrella!
+
+All became enjoyable again and there was still a good hour of the daylight on the clock. My pike floats at long last looked as if they were serving a purpose. Expectation had returned and any thoughts of personal survival had gone. Then high above the fields in the distance I noticed the full curve of a magnificent rainbow. The sun had crept up unawares and Mother Nature had painted a strip of multicolours splitting the far away sky. Just a while back it would have been impossible to believe such a transformation was possible.
+
+With the sudden freshness and brightness it was easy to imagine that Spring was just around the corner. The ongoing tug of war with winter would no doubt continue for several more weeks but perhaps this was the day of the beginning of change. Sticky buds and catkins and daffodils will no doubt now burst forth and herald the whole awaking and brown will turn to green. As for my fishing a blank day is unimportant and it would be sad if it was ever predictable. However my passion does put me in the very best of places to see and appreciate the full extent of our world of nature and for that I am truly grateful!
+
+By Ivor Hook

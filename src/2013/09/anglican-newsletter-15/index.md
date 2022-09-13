@@ -1,0 +1,88 @@
+---
+title: "Anglican newsletter"
+date: "2013-09-10"
+categories: 
+  - "village-pump"
+---
+
+<table width="100%" cellspacing="0" cellpadding="0"><tbody><tr><td><div><div></div>&nbsp;<div></div></div></td></tr></tbody></table>
+
+**September 2013 Newsletter**
+
+ 
+
+Einstein did not invent relativity – he just found out how applicable a concept it was to physical science and then discovered some of the rules by which it actually works.   But, people have always known that perception depends on the viewer’s standpoint.   In accounting (actually in real life) if I have a debtor, he has a creditor (me!) – same issue but we look at it from opposite points of view – for one it is an asset, for the other possibly a crippling liability.
+
+ 
+
+I don’t attend Church quite as often as I used to – I have more weekends away from home, during which I do not always make an opportunity to go to the local Church, but when I am here, I often go to two services on the same Sunday morning – typically first to an Anglican service in one of our villages and then, immediately after, to a free church service a few miles away.   The first follows the patterns (albeit quite loosely) of the Anglican tradition that goes all the way back for centuries and centuries.  The second has built up its own patterns of worship over only the last several years.   I get from one what I do not get from the other, because they both approach my need for Christian worship (the same objective) but in different ways.
+
+ 
+
+**Two stories:**      
+
+1.   An old farmer went to the city and attended a big Church.   He came home and his wife asked him how it was.   “Well,” said the farmer, “it was good.   They did something different, however.   They sang praise choruses instead of hymns.”   “Praise choruses?” said his wife; ”what are those?”   “Oh, they’re okay.   They’re sort of like hymns, only different.”   “Well, what’s the difference?” asked the wife.
+
+The farmer said, “Well, it’s like this.   If I were to say to you, ‘Martha, the cows are in the corn.’   Well that would be a hymn.   If on the other hand, I was to say to you,
+
+‘Martha, Martha, Martha, Oh MARTHA, MARTHA, MARTHA,
+
+the cows, the big cows, the brown cows, the white cows, the black and white cows,
+
+the COWS, COWS, COWS are in the corn, are in the corn.’
+
+Well, that would be a praise chorus.”
+
+ 
+
+2.   A young, new Christian went to his hometown one weekend and attended the small church there.   He came home and his wife asked him how it was.   “Well,” said the young man, “It was good.   They did something different, however.   They sang hymns instead of regular chorus songs.”   “Hymns,” said his wife, “what are those?”   “Oh, they’re okay.   They’re sort of like regular songs, only different.”   Well, what’s the difference?” asked his wife.  
+
+The young man said, “Well, it’s like this.   If I were to say to you, ‘Martha, the cows are in the corn.’   Well, that would be a regular song.   If on the other hand, I were to say to you,
+
+                ‘O Martha, dear Martha, hear thou my cry
+
+                Inclinest thou thine ear to the words of my mouth.
+
+                Turn thou thy whole wondrous ear by and by,
+
+                To the righteous, inimitable, glorious truth.
+
+                For the way of the animals who can explain
+
+                There in their heads is no shadow of sense,
+
+                Hearkenest they in God’s sun or rain
+
+                Unless from the mild, tempting corn they are fenced.
+
+                Yea, those cows in glad bovine, rebellious delight,
+
+                Have broke free from their shackles    . . . . .’
+
+Well, that would be a hymn.”
+
+ 
+
+Once on holiday (actually it was a working holiday many years ago) I went to a large church in Rio de Janeiro to Mass.   The Church was packed, crowded, standing room only, like a commuter train in Tokyo.   The service was in Brazilian Portuguese, a totally alien language for me.   But my school Latin, my modern French and my familiarity with the Christian message and the symbolism that it uses was enough to enable me to follow the whole service, even if I was not able to intone the prayers using the same words as those standing around me.   Indeed, not being a Roman Catholic, I might not have been familiar in all detail with most of the prayers, even in English.   But I was able to take part in and benefit from this apparently alien experience, because my starting point was not as far from those standing around me as they would have been if I had been trying to discuss insurance with one of them.   Similarly, if I had been Jewish, most of the service would have passed me by and I suspect that, if I had been Muslim, it would have totally passed me by.   The ability to relate to those around me depended on where I came from as much as on what was present.
+
+ 
+
+While I drop names, I should also mention that we used to live in Tokyo and there we regularly attended St Albans Church – a Japanese Anglican Church.   This was in the days when the 1662 Book of Common Prayer was the only authorised Service Book for use in the Church of England and throughout the worldwide Anglican Church (with minor variations from country to country – for example in the Episcopal Church of the USA).   In Japan the BCP had been translated into Japanese for use by the Church there.  At St Albans, which had an Australian minister and a congregation mainly of Americans, British and other English speakers, permission was given by the Bishop for the services to be conducted in English.   Extraordinarily, we had to use an officially sanctioned English translation of the Japanese service book.   This was in the mid ‘80s when buying Japanese products in the west, such as Video players etc involved reading Instruction Manuals in mangled, often amusing and always confusing English.   I still have one of the Service Books from St Albans.   Every now and then there would be a real echo of the 17th Century English of the BCP, but most of the time it was like wandering through cobwebs – just faint tingles and brushes.
+
+ 
+
+I have something of an obsession with relativity.   We are taught and believe, as Christian, in the presence of absolute truths, that transcend time and space.   Yet, we spend much, maybe most, of our time struggling with trying to make our truths fit our circumstances, rather than the other way.  For example the Church at large has been opposed to homosexuality for as long as we can remember and we trace that back to our Jewish heritage and to the writings in the Old Testament of the Bible.   We are taught that the ‘scriptures’ are God-given, holy and not to be ignored.   Yet most non Roman Catholic Churches now at the very least accept that homosexuality is not sinful in itself – just the act is sinful.   Indeed, the new Pope has now said exactly the same thing.
+
+ 
+
+But Jesus taught that it is what is in the mind that is sinful – so for a man to look at a woman lustfully is already sinful, even if he never touches her.   That seems inconsistent with the acceptance of homosexuality as OK, so long as it is not practised.
+
+ 
+
+Most of us (Christian, other religious, agnostic or atheist) obey our consciences or feel uncomfortable when we don’t.   Many of us are in the pincers of the received ‘truth’ handed down to us and the ‘truth’ which our consciences dictate to us.   It is a very real dilemma.   I did not want to focus on the gay issue, it was just convenient – it could as easily have been socio-political attitudes to women.   My concern is that I am tempted to see all truth as being relative – ie open to MY interpretation of it.   I can see that many so-called truths in history were not truths at all – they were awful and we have found ways to reject or modify them.  But why am I, now and here, so special?   In 200 years time they will look back with horror on some of our ‘enlightened’ ideas and practices.
+
+ 
+
+Clearly, on my own, I cannot stand so far above time and space to be able to get a truly objective perspective (even that is just choosing another standpoint, though – isn’t it?).   I have to have a basis for choosing appropriate behaviour every day – being philosophical about it is a little too much of a luxury – I have to decide what to do.  This, of course, is the responsibility that I believe that God has placed on me.   I have free will and time to think, unlike the cow which has to eat for 20 hours a day and not think too much about it at all.   I know that they got things wrong in the past.   I also know that many, in the past, were very wise and that their thoughts are not to be discarded.  Against that background and in my present position I have to find the truth that is applicable to me and me alone – that is absolute for me and that I can find if I converse enough with my God in the language that I have available to me.
+
+ Keith MacLeod

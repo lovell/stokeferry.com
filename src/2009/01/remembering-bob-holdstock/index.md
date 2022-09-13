@@ -1,0 +1,23 @@
+---
+title: "Remembering Bob Holdstock"
+date: "2009-01-01"
+categories: 
+  - "village-pump"
+  - "wereham"
+---
+
+Pammie looks back at a "larger than life" Wereham resident
+
+In 1960 Bob and Betty Holdstock ,accompanied by their two young daughters and Betty's parents, Gladys and Wilfred Neeves, left their home near Sevenoaks in Kent, and moved North to Norfolk. Here Bob would work for of the Greater London Council in the great new urban expansion project in Thetford. Thetford was a beautiful and historic market town which was chosen to become one of ondon's "overspill" areas. Bob would help in the building of hundreds of new houses designed to absorb a large scale migration of families from the Greater London area. Thetford, which had seen a steady decline in its population and fortunes since the 1950s, found its population dramatically tripled, and the character of the town changed dramatically as it filled up with Londoners and cockney accents! Betty remembers that years after the family had come to live in Wereham they were still known as "the Londoners" and this may explain why! The family moved initially to Downham Market in search of schools for the children but Bob and Betty continued to long for a niche in a quiet village.
+
+Eventually they heard that there was a property for sale in a pretty little village called Wereham. Investigation revealed an old house on the corner of Cavenham Road and Front Street, (as Church Road was then known) which had formerly been a cobbler's shop. The house was in a state of sad disrepair but Bob was quick to see its potential. Although he had been trained in carpentry, as a young man during the war, Bob had also worked on aircraft engines while serving in the Air Force and, consequently, greatly expanded his range of useful skills. So with the help of his father in law, Wilfred, he set about repairing and rebuilding the lovely house we now know as Tudor House. Bob was one of those tireless people with immense energy and enthusiasm and all these things were done in his "spare" time. In Tudor House, a beautiful wooden staircase and stone fireplace reveal the extent and range of his skill and meticulous craftsmanship.
+
+Those were the years when many beautiful ,old flint faced cottages and old, cold, draughty buildings (full of charm and character) were being demolished and replaced with much less aesthetic but more comfortable and practical dwellings. One such building was the old bakery, a once fine old building adjoining the churchyard. Undoubtedly this building might have been condemned to demolition, however very fortunately Bob rescued it, restored it and saved much of the charm and character of Church Road as result.
+
+Bob was an active and committed member of the Parish Council and campaigned hard to save another row of the old cottages in Church Road -however he lost that battle and the cottages were demolished together with the Mansion House. They were replaced by bland "modern infill" nearly 30 years ago. The village has since become a conservation area and that would never have been allowed to happen today.
+
+In his role as a member of the Parish Council, Bob initiated, encouraged and promoted many improvements which continue to benefit the village. Frequently the village pond would flood the lower end of Church Road (I recall a fairly hilarious tale about a night when the George and Dragon flooded, and gallant helpers (well fortified with alcohol against the cold!) were wading around in ice cold water in the pitch dark helping Derek, the landlord, to move his furniture up the stairs!) It was Bob who came up with the idea of reinforcing and stabilising the banks with sacks of cement mixed with sand- which has made a huge difference to the stability of the water level. It was Bob who furnished the Village Hall with a new wooden floor and proper Exit doors and curtains for the windows. It was Bob, who using his skill as a carpenter, repaired broken pew ends in St Margaret's and replaced broken tiles on the vestry roof so that the Vicar did not have to risk being drenched during a rainstorm. It was Bob who built the black boxes beneath the north and south aisle of windows so that his wife Betty had a proper place to put the lovely flower arrangements that came from her garden.
+
+Those who knew him well may recall that despite of his tremendous energy interest and involvement in everything to do with the village, Bob also fought a battle with leukaemia- which he actually overcame. Tragically, he then died in a motor accident on 26th November1986, bringing to a premature end this extraordinarily creative and productive life.
+
+Pammie Walker.

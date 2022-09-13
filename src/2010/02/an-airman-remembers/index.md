@@ -1,0 +1,74 @@
+---
+title: "An Airman remembers"
+date: "2010-02-01"
+categories: 
+  - "village-pump"
+---
+
+Ron Watts passes on this fascinating tale of a young airman who joined up at the end of World War II
+
+Bob Thomas was a work colleague of my sister-in-law, he wrote the article below for the firm's Pensioners Association Newsletter. I found his story quite interesting and, I guess, not untypical of servicemen that were in the far east just after the war. It also has a slight relationship with the present situation in Burma and the very brave but unfortunate Aung San Sui Kyi. I thought readers of The Pump might also find it of interest.
+
+Ron Watts
+
+Here is his article:
+
+Being in what was described as a 'reserved occupation' during the war, I was eventually called up - in 1945. Good timing, eh? RAF training on various UK stations took about a year, after which I was posted overseas in 1946 to join SEAC (South East Asia Command). This entailed a long troop ship voyage, initially to Singapore, which was unremarkable except for the passage through the Suez Canal. Here, on the banks of the canal, local male workers showed their contempt for Westerners by lifting the front of their burnous-like garments and swinging all thus revealed towards the watchers on the ship's rails, while shouting what presumably were far from friendly remarks. I am not sure who were more amused/offended/interested by this - servicemen or the few servicewomen on board!
+
+A few weeks in a transit camp under canvas in Singapore was followed by a shorter South China Sea trip north to Hong Kong, where I'd been posted.
+
+I don't know how much awareness of world geography you had in 1946, but all I knew about Hong Kong was that it was either in or near China, and a long way away, which didn't prepare me at all well for what I found it to be. Just recall 1946. The year after the war ended. The UK a dull, tired and dreary place - rationing of food, clothing and confectionery, power cuts, bomb damaged buildings. Housewives still having to be nice to the butcher...Hong Kong, in comparison, was alive, colourful, brightly lit, its people highly active. Shops already full of the world's luxuries from Swiss watches to American clothes, with hundreds of independent Chinese traders doing their best to sell them to you.
+
+I don't know how they'd reached this position so quickly after the war. But one has to remember that although Hong Kong was occupied by the Japanese for most of the war, there had been little fighting and virtually no bomb damage. As for the quick recovery of the retail economy, my guess is that the Chinese, like those in many countries with a less than stable banking system, had preferred to keep their wealth in gold. This was easy to hide - apart from the gold-filled teeth - and quick to recover when the occupation was over. And even on a serviceman's pay one could afford many of the goodies, helped by the paymaster's system. One could opt to take one's weekly pay in local currency or Sterling, and the street corner money changers gave a much better rate for British £ into Hong Kong $ than the Paymaster, so shopping and entertainment was cheap!
+
+My early impression of the Chinese people has been confirmed over the years by many visits back to Hong Kong, Singapore and other countries in that area, in most of which the Chinese dominate the culture and businesses. They are natural traders, clever, hard working, strongly bonded with each other but not given to fraternisation. In some of these countries legislation has been necessary to limit their involvement, because of their success. So, although I hadn't known it, Hong Kong was the finest posting in the Far East. Unfortunately, it didn't last long.
+
+In May 1947 I found, with dismay that I had been posted to Burma. This involved a sea trip back to Singapore, then an uncomfortable flight by RAF Dakota up the coast of Malaya. The Dakota, as many of you will know, was the 'work horse' aircraft of WW2, and ranks in my opinion, with the Jeep, as the USA - designed equipment which did most to help win the war. Apart from the atom bomb, of course!
+
+Unfortunately, 'passenger comfort' had not been included in the design brief of the aircraft, but a saving grace was that the Dakota couldn't fly far without refuelling. So we needed several stops at small airfields for fuel on the flight north. Most of these consisted of just an airstrip made of PSP, an ingenious solution to the problem of constructing a means of safe landing on inhospitable terrains. PSP, if you haven't come across it, consisted of meccano-type metal bars which locked together to form a runway which flexibly followed the level of uneven ground. During landing, this gave out an alarming clatter and vibration, like driving a car across a cattle grid... And so on, up to Rangoon.
+
+What I hadn't known was that May is the pre-monsoon period in Burma, and as we got closer to our destination the sky became a threatening purple and red, with rain and a high wind. I'd heard that in strong wind the wings of Dakotas flexed up and down like birds' wings - and they do. It was a relief to arrive safely. The rain soon stopped, as early monsoon weather is short, powerful storms, then sunshine, until the steady rain begins. It is also very hot.
+
+I was stationed at Mingaladon, an RAF base a few miles north of Rangoon, initially housed in bashas with palm-tree branch roofs. Those who have endured a wet holiday under canvas will appreciate how depressing it can be when rain is continual, day after day, with all one's belongings damp through high humidity. Then came relief at being relocated to proper buildings, where one could engage local boys to do jobs like bed-making, shoe cleaning and sorting laundry, for a few rupees a week. Laundry was done by the collector's family dunking it in a nearby stream then bashing it on rocks until 'clean', and laid in the sun (when this did show through the clouds, it soon dried everything). Until we learned better, newcomers wondered why they were constantly itching after putting on laundered clothes. Then they found the bugs! Freshly ironed clothes contained lots of these flat, hard creatures which hid in folds and creases, and emerged to the warmth of one's body. So one soon learned to examine one's laundry before putting it on. Well, dhobi was also only a few rupees a week...
+
+Insects were always a problem, especially mosquitoes. Should one dislodge one's mosquito net at night, the morning found many of them hanging, swollen-abdomen down, on the inside of the netting. I don't remember any cases of malaria, but we took mepacrine at main meals; this seemed effective, although it turned one's skin yellow. Amongst other unpleasant creatures was a strange type of beetle, with a body about the size and hardness of a small walnut, which was attracted by light at night and would fly straight in from the darkness like a bullet to hit whatever was in its path.
+
+When away from one's billet, showers and latrines were all alfresco. There'd be a dozen or so showers alongside a camp road. After a while one got used to showering with local village women walking at that slow, energy-efficient way one finds in hot countries, just a few feet away, and quite uninterested in naked men. And there was a technique in using the latrines! These were low, long wooden structures, with eight holes cut in the (rough) top wood, each of which was covered by a hinged lid. One soon learned one had to throw up a lid at one end and rush to a hole at the other end. This strange behaviour enabled the great cloud of flies and other flying insects emerge from the depths at the end furthest away from where one could then squat in reasonable comfort.
+
+Although we had these facilities, regular food, clean water, and an M.O. to treat us, there was a lot of sickness. How those chaps in the war had fought in the jungle through monsoons and heat without these benefits and with the Japanese to contend with, I cannot imagine. They were clearly made of tougher stuff.
+
+The British had re-taken Rangoon from the Japs. in May '45, and the country hadn't recovered as well as Hong Kong , so it had changed very little which made it far more interesting. It was a beautiful country, with huge amounts of valuable teak hard-wood trees amongst the thick jungle areas. Pagodas and roadside shrines were everywhere. Most Burmese are Buddhists. The most famous of the pagodas is the Shwe Dagon in Rangoon. An impressive, tall edifice with an enormous roof covered in real gold leaf.
+
+In off-duty times I often visited the Shwe Dagon, as well as the big market area in Rangoon called Scotts, which sold beautifully carved ivory pieces. It was legal to sell ivory in those days, and I expect they still do under today's Military regime. I bought a pair of ivory Chinthes (temple dogs, which are found all over the Far East). They were realistically carved male/female, and were placed on the appropriate sides of our bed head when I married. They were later stolen in a burglary.
+
+There were few buses, so when needing transport one just took a jeep. I learned to drive - if you can call it that - in Burma, and left a trail of damaged vehicles as proof that one really should have proper instruction. 'Crash' gearboxes were appropriately named! On my 21st birthday five or six of us took a vehicle and drove to a jungle clearing where we heard there was a 'restaurant', and enjoyed huge plates of egg omelettes and chips, plus - a special treat - imported beer. Tiger beer from Singapore was hard to obtain in Burma, and at that time was called 'Tiger Cub', as the brewer was not yet able to produce it to its pre-war strength. An excellent example of brand reputation protection.
+
+Part of our duties was to act as night guards at various strategic points, one of which was where, for a reason which was not obvious, a huge water pipe rose out of the ground, looped over, and immediately entered the ground again. The local Burmese police were supposed to do the guarding, while we overlooked them. So we just took turns to wake up occasionally, and make the guards (who were always asleep if we were) patrol round with their rifles; which they did assiduously until they judged we'd dropped off again.
+
+This site had a veranda, secured with barbed wire from the overhang down to the boards, and a strong pendant light. The light brought many flying insects. I was amazed to watch a large frog climb up a strand of wire, barb by barb, until it got near the lamp, then swing out towards the cloud of insects, picking them off with its long, sticky tongue. I don't think even David Attenborough has seen this!
+
+As lower ranks in any service get very little information, we were completely unaware of the dangerous political undercurrent in the country at that time, caused by the various power factions juggling for position when the British left. A month after my birthday bash General Aung San, the prime minister, and six cabinet ministers were assassinated in Rangoon when gunmen entered the cabinet room and sprayed them with sten guns (notoriously inaccurate weapons - they were unlucky to be hit).
+
+Aung San was the father of Aung San Suu Kyi, the then young child who became the leader whose party won the last free election to have been allowed in Burma, referred to earlier.
+
+We were all put on heightened alert immediately, and had to keep a loaded weapon with us at all time, even to the showers.
+
+Burma was to become an independent country in January 1948, with the last British to have left towards the end of 1947.
+
+All three services had a lot of closing down to do, which wasn't helped by the possibility of a political uprising of some sort, but the Burmese sensibly considered it better to wait until we were out of the way, and there was no serious trouble. Equipment was to be sold off, and every bit of armament destroyed. RAF Mingaladon's main part was to arrange auctions of all vehicles we weren't taking with us. This was fascinating. Burmese came from every part of the country, entire families with the buyers, and bid for heavy vehicles in particular. These ranged from Bedford and Dodge trucks to US MAC trucks, which were enormous. Many trucks were not serviceable, so the ones that were set off towing two or three u/s ones, often full of helpers and families inc. babies.
+
+Then, frequently, the towing vehicle also broke down, and the caravan stopped by the side of the road where the families set up tents and the men folk started taking engines, gear boxes, differentials etc. to bits. How they repaired them I've never understood, as many vehicles were very complicated, and things like crankshafts had to be removed, repair welded somewhere and replaced with bearings made to fit - then tuned! But they managed it, and after a week or so they'd got back to all parts of the country.
+
+Meanwhile, the munitions. At Rangoon docks loads continually arrived - guns, cartridges, shells, bombs. Everything had to be destroyed in case unrest occurred after we left. It was loaded onto barges, towed out and dumped in the Gulf of Martaban - 1000's of tons of it.
+
+It was treated with scant regard considering its dangerous nature, as some of it had been in strategic stores for years. High explosive tends to crystallise as it gets older, becoming unstable, and it is surprising that I can remember only one accident, when an airman (fortunately I knew only a little) was too close when a shell was dropped, exploded, killing him and, presumably, the labourers doing the carrying. It was the only occasion I was part of a service funeral party.
+
+In the autumn British forces began their planned evacuation from Burma by various means, which for me and my group meant an ancient coastal steamer from Rangoon, down the coast to Singapore. We were among the last out. The rusty vessel was not equipped for troop carrying, so we slept on the iron deck, a single blanket being the mattress. We looked on enviously as the lascar crew cooked their food, chapattis etc, on a small fire lit directly on the metal deck It was a very pleasant few days sailing south, in view of the coast nearly all the time.
+
+Good-bye, Burma.
+
+General Aung San had worked hard during the war for Burma's independence, achieving the agreed date of 4 January 1948 with Britain, but aware that further internal struggles were inevitable. Since his assassination his aim of a unified, democratic Burma remains no closer to being achieved. The conduct of the present military dictatorship towards his daughter, Aung San Suu Kyi, and the peoples of Burma, show his hopes for his country remain unfulfilled, 62 years after his death.
+
+05.08.2009.
+
+Bob Thomas

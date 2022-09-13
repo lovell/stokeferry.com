@@ -1,0 +1,86 @@
+---
+title: "Stoke Ferry Parish Council - minutes of October meeting"
+date: "2018-11-27"
+categories: 
+  - "parish-councils"
+  - "stoke-ferry"
+  - "village-pump"
+---
+
+STOKE FERRY PARISH COUNCIL Draft Minutes of the Ordinary Meeting held on Wednesday 3 October 2018 at 7.00pm in Stoke Ferry Village Hall
+
+In attendance: Cllr Sue Lintern (Chair) Cllr Jim McNeill (Vice-Chair) Cllr Daphne Clements Cllr Mandy Leamon Cllr Trudy Mann (Vacancy – 1) Helen Richardson (Parish Clerk and Financial Responsible Person)
+
+Public: 2 Also, in attendance: Cllr Colin Sampson, Borough Council of Kings Lynn and West Norfolk Mr Chris Philpott, Footpath Warden
+
+201/18 Emergency Evacuation Procedures was advised by the Chair.
+
+202/18 Openness and Transparency Notice was advised by the Chair. The Parish Council record the meeting.
+
+203/18 To receive apologies for absence Apologies were received and accepted from Cllr Kit Hesketh-Harvey, Cllr Gail Reeve and Cllr Martin Storey. Cllr Grant Tomkins had advised he would be attending later during the meeting.
+
+204/18 To receive Declarations of Interest on Agenda Items and Dispensation Requests A request from dispensation had been received from Cllr Trudy Mann in relation to the budget, 2Agriculture Mill and any development in relation to 2Agriculture Mill, it was proposed by Cllr Daphne Clements, seconded by Cllr Sue Lintern, 1 abstained and 4 in favour.
+
+205/18 To Approve the Minutes of the Meeting on 5 September 2018 It was agreed that the minutes of the meeting on 5 September 2018 were a true and accurate record of the meeting. They were proposed by Cllr Sue Lintern, seconded by Cllr Jim McNeill, 1 abstained and 4 in favour.
+
+206/18 To Note: Clerk’s Report (Inc Matters Arising) Cemetery Bin – The bin has been ordered and the Handyman will empty once in place, the current contractor had been given notice to end. Air Quality Monitor – The Borough Council advised that the monitor on self’s field is awaiting electric connection. Kate Penn has now left the role at BCKLWN and there is a generic email address for future enquiries. Vacancy - The one vacancy on the Parish Council could now be co-opted. Blocked drain - on High Street outside The Cottage reported. Buckenham Drive Grass Cutting - Grass had been cut by the Borough Council at Buckenham Drive though it was noted that it hadn’t been the area of concern. The Clerk shared that the Borough Council had advised that there were no current ar-rangements for an inter authority grass cutting regime and it was the Borough Coun-cil’s team who cuts this area. It was noted that scrap cars had been cleared but it still left the grass near the bungalows to be cut. The Clerk agreed to chase it up with the Borough Council. Cllr Colin Sampson shared that he was expecting a report on the grass cutting regime across authorities. Cllr Mandy Leamon agreed to share infor-mation about the area with Cllr Colin Sampson and pictures to the Clerk. Solar Application – Cllr Colin Sampson advised that it was going to a sifting meet-ing and there wasn’t a date available at this time. Cllr Colin Sampson advised that they know that it was to be called in. Cllr Colin Sampson shared that his email came in Monday morning and cut off was Friday afternoon, and he was not happy he had missed the deadline and unhappy about the process which relied on availability year-round which wasn’t always possible. Indigo Road - Brambles had been cut back and it looked tidier. 207/18 To Approve: Community Emergency (Recovery) Plan Councillors had received a revised copy. Cllr Daphne Clements confirmed that she would check with BT why the phone box hadn’t been working. The Councillors discussed the recovery plan during the meeting and made amendments. The Chair agreed to provide Cllr Jim McNeill with a copy of a map to be used in the document. The Chair and Vice-Chair agreed to tidy up and Cllr Daphne Clements agreed to supply agreed information to finalise the copy. It was agreed to review the document annually, Cllr Trudy Mann proposed that the document be approved pending these amendments being actioned, Cllr Mandy Leamon seconded it, all were in favour. It would be distributed to all households and published on notice boards and the website, it would also be sent to the Emergency Planning Team at the Borough Council.
+
+208/18 To Approve: Letter to Borough Council regarding Dukes Head Building Cllr Jim McNeill had shared a suggested letter to go to the Borough Council about the Dukes Head building. It was believed that the Borough Council could compulsory purchase a building or make the owner carry out work required as it was listed. The property had been up for auction but remained unsold. The Parish Council felt that the state of the building had worsened over time as it stood empty. It was agreed to include in the letter that auctions had been unsuccessful, but it shouldn’t be a reason for the Borough Council to delay action. Cllr Jim McNeill agreed to amend the letter and pass it by the Chair before the Clerk forwards it to the Borough Council. Cllr Daphne Clements proposed the approval of the letter pending agreed amendments and its sending to the Borough Council, seconded Cllr Sue Lintern, all were in favour.
+
+209/18 To Discuss Light from Street Lamp Outside Chip Shop The Parish Council had received a request to turn off a street lamp it owned near the chip shop junction or blank it out to a neighbouring property. There was concern for general safety should the Parish Council take this step and turn the light off or blank it out and road safety as it was at a junction. A resident advised that they lived in the area and hadn’t noticed an issue and due to the light that a streetlamp gives out it needed to be a prescribed brightness for road safety. Cllr Daphne Clements proposed to take no action, seconded by Cllr Jim McNeill, all were in favour.
+
+210/18 To Note: Road Closure Notice for Lynn Road Resurfacing The Chair advised that the road closure notice had been received for Lynn Road for resurfacing between 15th October to 18th October, it was believed residents had received letters too. The Clerk had added it to the website and notice board. The Parish Council wished to make it clear that the road would be closed but pedestrian access and to properties would be available.
+
+211/18 Consultation on the Amendment to the Public Spaces Protection Order (Control of Dogs) – (Borough Council of King’s Lynn & West Norfolk) 2015 The Clerk agreed to check if the playing field was included within the order.
+
+212/18 To Plan: The Battle’s Over A Nation’s Tribute and Remembrance Sunday 11th November 2018 and Purchase of Two Wreaths Cllr Sue Lintern proposed the purchase of two wreaths, Cllr Mandy Leamon seconded it, all were in favour. The Clerk agreed to arrange with Royal British Legion two wreaths and Cllr Daphne Clements agreed to lay in the cemetery for the soldier in the cemetery. Cllr Daphne Clements shared that she believed a plaque could be made available for cemeteries that had soldiers buried there and agreed to contact the Royal British Legion. Cllr Daphne Clements advised that the war memorial was refurbished in 2012.
+
+The Clerk agreed to ask the Handyman to tidy up the flower pots for remembrance Sunday.
+
+The Chair shared that the beacon was in storage and Cllr Jim McNeill shared that he would progress arrangements for it within the ‘Battle is Over: Beacons of Light’ event at 7 pm on 11th November that the Parish Council had signed up to.
+
+213/18 To Plan: Christmas Event The Chair highlighted an event called ‘Fensong’ which was a singing, drama dance group. There will be a Christmas Extravaganza on 22nd December, 6 pm. It was agreed to advertise in Parish Council places.
+
+The Parish Council discussed the turning on of the Christmas Lights and it was agreed to provisionally arrange for Saturday 1st December. It was felt that as Andrew the Handyman had done a lot for the village to ask him if he would like to turn the Christmas Tree lights this year, Cllr Jim McNeil proposed, Cllr Mandy Leamon seconded, all were in favour.
+
+214/18 Any Handyman/Norfolk County Council Rangers or Public Rights of Way (Footpaths/Bridleway) Issues The Chair shared the Stoke Ferry Walkers guide which had been branded for publishing was in final draft form. The Parish Council agreed that it looked high quality and had been produced well. The Footpath Warden had confirmed the contents were accurate and would be tested by six walkers.
+
+The Chair shared that she had investigated cost of markers for the finger posts along the routes and Bonnetts had provided a quote for them made in metal, for 170 calculated as being needed was £612 pounds including VAT. It was proposed by Cllr Mandy Leamon to purchase metal badges to the sum of £500 before VAT, seconded by Cllr Jim McNeill, all were in favour. The Chair agreed to progress the order.
+
+The Chair shared that the Council had received a communication from SkyBlu regarding designation of footpaths on the definitive plan by the deadline of 2026. The Chair shared that there was an issue with footpath 5 (FP5) of whether it was on the field or woodland side and required an historic piece of information. And on Oxborough Road opposite footpath 2 (FP2) is Romer Drove which may have been a lost footpath and the Chair proposed that the parish council use this service to see if they can resolve these issues that have not be possible to resolve. Costs to conduct the survey was around 250-500 pounds, this was seconded by Cllr Daphne Clements, all were in favour. The Chair agreed to send information to the Clerk for her to contact the SkyBlu.
+
+Cllr Trudy Mann shared that it had been reported to her that Bridleway 8 (BR8) had been cut to the end of the path, under the bridge and continuing along the other-side of the bypass and it looked good.
+
+215/18 To Approve the Communications Policy The Parish Council had reviewed the Communications Policy for approval, Cllr Jim McNeill, seconded by Cllr Trudy Mann, all were in favour.
+
+216/18 Planning a) For consideration 18/01639/F Rebuild of agricultural barn for the continued use of agricultural storage and the welfare of animals at Barn Behind Bramble Hall Greatmans Way Stoke Ferry Norfolk was received for consultation. The Chair proposed to advise that there were no observations, seconded by Cllr Jim McNeill, all were in favour. b) To Note Only - Decisions Received: 18/01225/F Stoke Ferry Carnegie Lodge 27 Wretton Road Stoke Ferry King's Lynn Norfolk PE33 9SQ - Demolition of garage and conservatory and construction of two storey rear extension and the construction of a single garage Application Permitted 28 August 2018 Delegated Decision 17/00469/NMA\_1 Stoke Ferry 570368 300064 APPLICATION FOR A NON-MATERIAL AMENDMENT TO PLANNING PERMISSION 17/00469/F: VARIATION OF CONDITIONS 8, 9, 14, 21, AND 29 OF PERMISSION 16/00493/FM: Proposed residential development (29 dwellings) with minor demolition of former opening in boundary wall for access to plot 24. To include parking and access to existing village hall Land Between Bramcote House And Village Hall Lynn Road Stoke Ferry Norfolk 18/00139/TREECA Stoke Ferry The Granary Oxborough Road Stoke Ferry King's Lynn Norfolk PE33 9SY - Tree in a conservation area: T1 - Walnut - Remove lowest union and crown lift to clear boundary of property (removing up to 4m of growth). Remote secondary limbs back to the primary branch. Tree Application - No objection 10 September 2018. Delegated Decision
+
+c) To Receive an Update on the Neighbourhood Plan Update – Cllr Kit Hesketh-Harvey and Approve the Designated Area of the Neighbourhood Plan. The Clerk shared the following information for approval by the Parish Council as the first steps in formally actioning the Neighbourhood Plan:
+
+i) a map which identifies the area to which the area application relates, the map proposed was of the whole parish boundary. This was proposed by Cllr Sue Lintern, seconded by Cllr Jim McNeill, all were in favour.
+
+ii) a statement was needed to be provided to the Borough Council to explain why this area was considered appropriate to be designated as a neighbourhood area; the Stoke Ferry Parish Council agreed that as a statement they would advise that as this was the administrative boundary of the boundary for the Parish of Stoke Ferry and therefore provided an appropriate area for the neighbourhood plan to cover and allow for the future of our local community to be planned for sustainably. Proposed by Cllr Trudy Mann, seconded by Cllr Daphne Clements, all were in favour.
+
+iii) a statement was needed that the organisation or body making the area applica-tion is a relevant body for the purposes of section 61G of the 1990 Act. The Stoke Ferry Parish Council needed to acknowledge that a steering group was producing the Plan rather than the Parish Council, and evidence would be provided to the Borough Council in the form of minutes of the meeting this was approved. This will show the relationship between the Parish Council and the Neighbourhood Plan Steering Group so that when the Borough Council communicate they are sure they are dealing with someone with the relevant authority.
+
+217/18 To Approve payments of bills and summary of accounts for September 2018: Payee Payment for Net VAT Total Clerk Clerks Wages and Expenses - Sept 18 274.02 0.00 274.02 HMRC Sep-18 64.20 0.00 64.20 Veolia (DD) Cemetery Bins 24.06 4.81 28.87 EON (DD) Streetlights Electricity - Sept 2018 65.28 3.26 68.54 Jaydee Living Ltd One 360 Litre Wheelie Bin 76.45 15.29 91.74 Hodson Office Sup-plies Ink for Printer 15.99 3.20 19.19 Ocean Remix Website Hosting - Annual Fee 120.00 24.00 144.00 Wave (DD) Cemetery Water Supply 11.70 0.00 11.70 PKF Littlejohn LLP External Audit Fee 200.00 40.00 240.00 Mr A Stannard Handyman- Sept 18 411.00 0 411.00 Mr Sparkle Grass cutting 32.00 0 32.00 SF Village Hall Village Hall Hire 70.00 0 70.00 Total 851.70 90.56 942.26
+
+As at 3 Sept 18 Treasurer Account 3261.06 Business Account 35451.43
+
+Proposed Cllr Trudy Mann seconded by Cllr Daphne Clements, all were in favour
+
+The Clerk agreed to ask Handyman to cut the grass not before 8 am in the village.
+
+218/18 Urgent items as agreed by the Chairman It was agreed to put on the next agenda community asset registration in relation to the Bluebell pub.
+
+The Chair shared the design from Bonnetts for the village sign, and there had been a north, south, east, west design made like Gayton’s. It was on the November agenda for discussion, but the Chair wished to share the initial costs received which was £2400 including VAT which included the work on top and the post. The Chair agreed to find out how long it would last, whether they could include colour and agree that any changes to the design will be consulted on if possible.
+
+The Chair had been looking at the map for the plinth, and it needed to be etched on and she would find someone to quote for that.
+
+219/18 To Review Forward Agenda Items The Parish Council noted the list.
+
+220/18 Public Participation - To receive information or suggested items to be considered at the next meeting including Cllr Colin Sampson (BCKLWN) • The Clerk agreed to investigate bushes near Bonnetts along paths to see if they needed to be cut back. • Cllr Colin Sampson shared that play equipment was available from Wormegay Parish Council if needed from their Borough Councillor at no cost. Cllr Mandy Leamon agreed to discuss with David of the Playing Field Committee urgently to see if they wanted it. The Clerk agreed to add to the November agenda. • The Clerk agreed to chase up Planning regarding funding for play equipment from the Indigo Road Development. • The Clerk advised that Highways had responded regarding any items that were placed on verges which were owned by them, and confirmed that this was not allowable, and if there were any that were reported to them they would investigate. The Clerk advised that this could be reported by the public using the Norfolk County Council’s portal for defects online. • At Greatmans way at the bottom on the right-hand side, there is a dyke and there was a fence on the side of the road which had disappeared, the Clerk agreed to contact Norfolk County Council to ask if they could reinstate a new fence for safety. • At the bottom of bridleway 8 at Greatmans Way end, the grass cut had been done very nicely, the Clerk agreed to ask if Highways had cut it. They had gone all the way along to footpath 5. • The Clerk agreed to check what had occurred with the five-year check for paths that Stoke Ferry was due this year. • The Clerk agreed to email the factory about the ivy growing over the wall. • The Chair shared that a notice to dog walkers would be added to the back of the walker’s guide and notices regarding life stock. • The Chair wished to congratulate the Stoke Ferry Parish Clerk who been nominated for Clerk of the Year and was one of four finalised through the Norfolk Association of Local Council’s award. The Parish Council wished to give a note of thanks and congratulations to the Clerk for nomination.
+
+221/18 To Note date and time of next meeting – Wednesday 7 November 2018 at 7.00pm
+
+Meeting Closed: 9.42 pm

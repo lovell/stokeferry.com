@@ -1,0 +1,34 @@
+---
+title: "February Anglican newsletter"
+date: "2007-02-01"
+categories: 
+  - "village-pump"
+---
+
+Keith examines a factor which has a major impact on our society - the loss of stability, constancy and consistency
+
+It has occurred to me that Climate Change, which now seems to be accepted fact to most scientists and to most of us non-scientists also, is a sort of metaphor for our lives in general. One looks at the 60s and talks about social change - which was really an over-generalization of the effect the arrival of the Pill had on attitudes towards and held by women. One can look at the 50s and see the disappearance of the black car with running boards and frog eyes. The IT and related Communications revolution of the past 30 years is the most striking of all changes in the past century or so.
+
+But is there an overall effect or factor which really has affected us all? I believe there is - it is the loss of stability, constancy and consistency. I was discussing the prevalence of divorce nowadays as compared with our grandparents' generation. It is not the Pill that is responsible for that. It is the fact that we do not have to take anything for granted any more. When my grandparents (and remember that I am nearly 70, so I am asking you to look a long way back!) married, they were enormously relieved to achieve that status. They may or may not have been in love. They may or may not have really liked each other. But getting married was so important, in order to create a viable economy for life. One wage would be sufficient to keep a family (typically with very little or no margin for error). The wife would become the mother and house keeper and would have to carry that burden (far greater than for the stay-at-home homemaker nowadays) for decades, outliving the male breadwinner, who would retire at 65, exhausted by a life of hard work and probably dead before the age of 68.
+
+What I am trying to highlight is not the desperateness, poverty and drudgery of those days, but the certainties. Once you got a job, if you kept your nose clean, it was for life. Redundancy was not a word that could be applied to human beings. One cost of that economic certainty was, of course, social certainty. It was difficult to break out of your class - your first job was determined very much by your education, wealth and family background - and if that job was also your last job, subject to some promotions, then that meant you stayed in the social caste from which you came. Middle class families looked to their daughters getting safely married (just as in earlier times Jane Austen's heroines did) and to their sons going into the forces (commissioned of course) the professions (the City or the Medical profession) or the Church. Lower class families looked also for marriage for their daughters and for a safe job in the local Works for the boys.
+
+Economic ups and downs affected the lives of ordinary people from month to month or year to year, but did not change their overall life style. Only the existence of Empire gave the opportunity for people to break out and make something of themselves, outside the mould.
+
+So what has happened? Well, how or why it has happened is not for me to try to deal with here, but during my lifetime most of those certainties have disappeared. Even the Cold War was a continuation of the Balance of Power politics of the 18th and 19th Centuries, that gave rise to the First and Second Wars in the 20th. With the collapse of the USSR, international politics has become a nightmare, with no country being sure of what its doing, nor how and why!
+
+In my lifetime, even Civil Servants and NHS employees have ceased to have guaranteed jobs. The National Coal Board, the largest employer in the country in the 50s has disappeared. Steel now employs a few people. There is virtually no ship-building in the UK - we were the world's largest only a few decades ago. The so-called service industries, looked down on 50 years ago as not being real work, are now what nearly all of us are in. And the companies in the service industries come and go with frightening frequency. I am still tempted to go to the Post Office to complain about phone problems, forgetting that it is now British Gas (which is probably owned by an Australian or Russian company) that provides me with everything except gas, which in turn is provided by a French national electricity company. I am sure it is all more efficient and cheap, but I do not enjoy the confusion. Do you?
+
+A few months ago my (American?) Chevrolet car was a Far Eastern Daewoo. I never had a problem with Ford and Vauxhall cars being British cars generating profits for an American parent, but I cannot come to grips with the Minis, Jaguars, MGs . . . all being German or American. The world beneath my feet seems very fluid. It is difficult to keep my balance. Is it any wonder that as we spin around on a permanent carousel, people find it difficult to remain married to the same person? Is it any wonder that our youth find it difficult to determine what the rules of behaviour are or what will be expected of them in a few months or years?
+
+Actually, I am not as downcast as the foregoing may suggest. It is actually often quite exciting not to know what is around the corner. It is actually very exciting that we can all travel anywhere in the world unbelievably cheaply (even though it is at the cost of accelerating that Climate Change we started with). It is very exciting that I can see so many members of my family so often despite the fact that they live all over the place. It is also exciting that we can do so much more to determine our own futures.
+
+In the English Christian Church we have recognized that things have changed. Most born and bred Brits know or the hymn 'All Things Bright and Beautiful'. The older ones among us remember the verse that has been withdraw from all modern prints and renditions is the old verse 3, that went 'The rich man in his castle, the poor man at his gate, God made them high or lowly, and ordered their estate'. That evidences the stability that existed and that few effectively questioned, including the established Church.
+
+But/and, of course, as a Christian, or as a Muslim, or a Sikh, or . ., I am aware of real certainties that do transcend all the trivial variation of our short lives. The most important is Love. It is a word used quite variously of course. But the 'religious' meaning of Love is that active readiness to reach out to others, as sacrificially as is required, in order to comfort and support them to as good a life as yours and ultimately into a relationship of deep and committed friendship. This is (poorly stated I am afraid) no less than a Humanist would say. The extra component of the religious is the recognition of the Creator God, as the source of Love.
+
+Keith MacLeod
+
+Licensed Lay Minister
+
+Keith McLeod

@@ -1,0 +1,19 @@
+---
+title: "WEST DEREHAM HERITAGE GROUP"
+date: "2008-08-01"
+categories: 
+  - "village-pump"
+  - "west-dereham"
+---
+
+Richard provises a detaild report on the Group meeting held on 9th June
+
+On the evening of the 26th. June 9 members assembled at the Saturday Market Place in Kings Lynn to meet up with Dr.Paul Richards who you will remember came to us last year and gave a talk on Medieval Kings Lynn. Our tour with commentary by Dr Richards was to walk round the oldest parts of Lynn looking at the historical properties that remain. Lynn is very fortunate in having a large number of interesting buildings some of which date from the 13th. century all in a good state of preservation. Many were saved in the latter half of the last century by the Kings Lynn Peservation Trust although even as late as 1974 one of the oldest houses in Lynn was demolished ( more by accident than design) to be replaced by a modern housing block.
+
+From St. Margaret's Church which dates from 1101 and its unique Tide Clock we walked over to Thorsby College. A Tudor building it originally housed Priest of the Trinity Guild. A dig in the central courtyard some years ago revealed a well preserved wooden quay which showed that the riverside was much further east than it is today. Much of the present day quayside was gradually reclaimed from the river with a series of rubbish "piers" which were pushed out into the river as a way of getting rid of the day to day waste that most human activity produces. The spaces in between silted up or were filled in with stone and rubble to create solid footings with which the quay side was extended westward.
+
+Hanging in the entrance arch to Thorsby College is a cannon ball contained in an iron bracket above your head if you look up. This is said to be the very ball which on Sunday the 3rd of September 1643 crashed through the window of St. Margaret's Church while a sermon was in progress. The Minister, (Mr Hinson) and his congregation were shaken but unhurt. It's an 18lb. ball fired from the cannon of Parliamentarian forces under the Earl of Manchester during the siege of Lynn from West Lynn which had been seized by Cromwell a few days earlier. West Lynn was known as "Old Lyn" and Boal Quay as "Worlds End" in 1561.
+
+We were able to visit Clifton House, a very fine merchants house, by kind permission of the owners, Dr Simon Thurley and his wife, who greeted us on arrival passing through the original oak doors to enter the house itself. Dr. Thurley is the President of English Heritage. We went down into a very well preserved crypt and you could see remains of 12th. Century stone work in the side walls which were remains of adjoining buildings, the top parts of which were rebuilt in the 16th and 17th Centuries. There is a grand stairway to the upper rooms much of it made in English Oak with some fine "barley twist" turnings on the columns. The rooms, although requiring a lot of work in restoration and redecoration, have many of the original features that have been hidden for years behind studwork. Over time these rooms will be restored and furnished in the 17th century manner with genuine pieces where possible. We were able to see the magnificent Tower building, which was added in Tudor times, as we left as there was not time to actually enter and go up into the rooms. Another time perhaps. At this point a light rain became a steady downfall and we took shelter down Baker Street in some old Hanseatic warehouses which are now flats and very nicely done about 30 years ago. We had planned to go on to the Customs House, Tuesday Market Place and Chapel Street but we decided the weather was against us and we would head for home. Maggie Fisher thanked Dr Richards for his efforts and a most interesting tour and an invite from him to do it again next year.
+
+Richard C French. West Dereham Heritage Group.

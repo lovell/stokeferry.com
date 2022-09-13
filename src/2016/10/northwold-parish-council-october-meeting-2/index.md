@@ -1,0 +1,72 @@
+---
+title: "Northwold Parish Council - October meeting"
+date: "2016-10-25"
+categories: 
+  - "northwold"
+  - "parish-councils"
+  - "village-pump"
+---
+
+MINUTES OF NORTHWOLD AND WHITTINGTON PARISH COUNCIL MEETING HELD AT THE VILLAGE HALL, NORTHWOLD Tuesday 4th October 2016 at 7.30pm
+
+DRAFT UNTIL SIGNED BY THE CHAIR
+
+Councillors present: A Collins (Vice Chair, chairing the meeting), C Anderson, F Eglington, G Gillett, A Jenkinson, S Leet, A Muir, C Pointeer
+
+Councillors absent: R Crisp (Chair), S Gillett, M Peake
+
+Others present: County Councillor M Storey, three members of the public, Clerk J Taylor
+
+Item 16/10/6/1 Public Forum A resident referred to an item in recently published Minutes regarding enquiries about Normandy Close. Cllr Muir had undertaken to investigate the ownership of amenity areas, and it had been established that, according to Land Registry records, Laughton Construction still owned the land in question. It was noted that CGM, funded by the Parish Council, maintained those areas.
+
+Item 16/10/6/2 Local Authority Reports i. Norfolk County Council CCllr Storey explained that, as there were 16 parishes within his remit, and some had meetings on the same evenings, he was not always able to attend the N&WPC meeting. However, he emphasised that he can always be contacted at any time by email, phone, or letter. He reported that NCC had received 11,000 responses to the consultation on devolution. He intended to vote on the issue the same way as the majority of Norfolk residents had voted. The Vice Chair queried where additional money would come from to fund the additional layer of administration required under the devolution plan. CCllr Storey explained that this was a key factor in the decision. Regarding the recent media attention on Children’s Services within the County, CCllr Storey reported that every effort was being made to make improvements. Budget constraints were difficult, but the aim was to keep frontline services unaffected. All details on these issues are on the NCC website. ii. KLWNBC Cllr Peake absent: no report.
+
+Item 16/10/6/3 Accepted Apologies for Absence (LGA 1972, Section 85(1) & (2)) R Crisp (ill-health); G Gillett (unexpectedly delayed elsewhere); M Peake (no reason given).
+
+Item 16/10/6/4 Members’ Declaration of Interest on Items on the Agenda None.
+
+Item 16/10/6/5 To approve and sign the Minutes of the meeting held on 6th September 2016 (LGA 1972, Schedule 12, para 41(2)) Item 16/09/6/18.vi: Cllr Jenkinson’s name was replaced with Cllr Eglington’s; thereafter the Minutes of the meeting held on 6th September 2016 were adopted as a true statement and signed by the Vice Chair.
+
+Item 16/10/4/6 Reports and Matters arising from Minutes of the last meeting (for info only) i. Chair’s Report None. ii. Clerk’s Report RoSPA inspection of Northwold play area. Now scheduled within two weeks. Report expected by end October. Whittington Churchyard. Privy Council due to meet 12th October to consider Closure. BT Broadband – upgrade to Methwold Road Cabinet 5. The timing of implementation is driven only by technological feasibility and economic considerations, not the need of the community. Roll-out mid-2018 to end March 2020. Trial Mobile Post Office Service, Tuesdays at the Village Hall, lunchtime for two hours. TSB response to credit in error and subsequent correction to the Treasurers account: member of staff made a mistake and corrected it. Clerk holiday 2016: 21st November to 4th December inclusive. Items for the December Agenda to be provided before then if possible please.
+
+Item 16/10/4/7 Highways Matters i. Highways update: Andy Wallace, NCC Highways Mr Wallace had sent apologies and provided a report to the Clerk. Re grasscutting schedules for 2017, at present the existing schedule is due to continue, but a Committee meeting soon should discuss the issue. Re Common Drove Bridge, AW checking with Highways Bridges Team. Re stile on footpath behind Northwold Cemetery, AW raising order and requesting completion before Christmas. Clearing footpath behind Normandy Close; AW requesting. Query raised re responsibility for private walls which had the potential to fall into the Highway: BCKLWN has that responsibility – either Building Control or Environmental Health. Query raised re responsibility for trees overhanging the highway – landowners are responsible. If Parish Council is unable to persuade private landowners to take action, Highways will follow up.
+
+Highways Rangers will attend the parish week commencing 17th October. Council requested that the road signs at the end of Little London Road which had fallen/were leaning be added to the action list. Action: Clerk
+
+Item 16/10/4/8 2017/18 Wish List i. Skateboard Park, Northwold Clerk had received no updates from the group involved. Councillors emphasised that a more definite idea of cost was necessary. Clerk would contact again. Action: Clerk. ii. Village Shop, Northwold It was felt that a shop on the allotments on the way to the Cemetery would not be appropriate. The Village Hall was suggested as an option. The comment was made that the main hurdle to having a shop was its commercial non-viability, and volunteers would be crucial. Residents would need to be sure that there would be enough interest and support to keep a shop going long-term. Action: residents. iii. Review of other items on 2016/17 Wish List Re-gravelling of driveway in Northwold Cemetery. It was agreed that to re-gravel would cause problems for visitors using wheelchairs, and that at present re-gravelling was unnecessary.
+
+Item 16/10/6/9 Northwold Cemetery i. Works Update Vice Chair reported. The gravestones have been reviewed. Eleven require action. None of the relatives remained in the village. There are two possibilities: lay the headstones flat; or install a stake behind the stone and secure with a belt. Vice Chair requested that councillors review the situation and report back with a view for consideration at the next meeting. One grave contravened Cemetery Regulations. It was agreed to send one more letter (Signed-For delivery) to the owner, stating that unless they took action, the Parish Council would have to do so. Action: Clerk Rest of the Cemetery was in good condition. A query was raised re adequacy of weedkiller spraying. It was reported that CGM sprayed weedkiller on 20th August, but there were some areas that were not sprayed as it was not possible safely to reach them.
+
+Item 16/10/6/10 Whittington Recreation Ground – to consider ongoing tree maintenance Further costings had not yet been received by the Clerk. It was noted that, as tree maintenance had not been carried out for some years, costs were likely to be substantial.
+
+Item 16/10/6/11 To consider purchase of Parish Noticeboards Clerk had sourced noticeboards constructed from ‘man-made timber’. These would be long-lasting and would need no maintenance. Councillors agreed that these would be suitable; Clerk to get quotes for double-sized boards, glazed. Action: Clerk.
+
+Item 16/10/6/12 Normandy Close – Establishing Ownership Covered in the Public Forum at the beginning of the meeting. Clerk to write to those residents with specific queries to explain the situation. Mowing of Normandy Close amenity areas to be removed from specification for Northwold grounds maintenance contracts. Action: Clerk
+
+Item 16/10/6/13 Correspondence Norfolk Association of Local Councils: consultation on potential introduction of automatic referenda for Precept increases. Council did not wish to submit a comment. Community Action Norfolk: dates of drop-in clinics. Borough Council of King’s Lynn and West Norfolk: Play areas – exclusion of dogs Order. Council did not wish to have play areas within the parish excluded from this Order.
+
+Item 16/10/6/14 Planning Applications i. 16/01640/F: Change of use agricultural land/garage construction/End Barn 1 Pooly Farm Barns, Northwold No objection.
+
+Further applications which arrived too late to be listed on the Agenda:
+
+16/01626/F: Proposed garage and therapy room at Woodlands, 11 Little London Road, Northwold; 16/01609/F: Single storey extension in front of bungalow at 44A Methwold Road, Northwold; 16/01703/F: Sub-division of single dwelling to create two dwellings at 16 Methwold Road, Northwold.
+
+Clerk requested that councillors consider whether an additional meeting should be called to review these applications. Cllr Leet declared on 16/01626/F, should a meeting take place.
+
+Item 16/10/6/15. Finance and Policies i. Parish Council Bank Balances and reconciliation from list of payments and receipts. TSB Treasurers Account balance at 20/9/16 was confirmed as £58,446.33. Payments to end September £34,441.52. Receipts to end September £19,445.85. Balance carried forward end September £39,126.84. ii. Cheques for approval and signing and to authorise payment of outstanding invoices.
+
+Ref Payee Payment Details £
+
+2051 Westcotec Street lighting maintenance 19.10 2052 CGM Group Emergency work, Whittington 660.00 2053 CGM Group Grounds maintenance Sept 301.92 2054 J A Taylor Clerk salary 349.96 2054 J A Taylor Clerk expenses 25.13
+
+Total 1356.11 It was proposed that the bank balance and reconciliation be received and adopted, and the payments be approved. Proposed: Cllr Muir; seconded: Cllr Leet. All in favour. Resolved 16/10/6/15.ii. The bank reconciliation was initialled by the Vice Chair, and the cheques were signed by Vice Chair and Cllr Eglington. iii. Budget 2017/18: to consider format and preliminary consideration of items for inclusion. Items to be deleted from the Budget format: Bank interest (TSB account does not pay interest); Constables Charity; Pride in Norfolk. Items to be added: Repairs and Maintenance; Elections (amount); Contingency sums; Capital items. iv. Risk Assessment: Assets Cllr Pointeer would assess the recreation grounds and the Northwold Sports and Social Club (Cllr Jenkinson to provide current list with comments). Cllrs Anderson and Eglington would assess the remainder. To be completed by the next meeting. Action: Anderson; Eglington; Jenkinson; Pointeer v. Risk Assessment: Financial Clerk reported that this would need review, as would other policies and procedures, and this would likely need additional hours over the seven hours per week authorised for the Clerk. It was agreed in principle that additional hours, if necessary, could be worked by the Clerk. Clerk’s employment contract allows for this, subject to specific approval by Council. vi. Review of Standing Orders SO 3l. re recording of meetings, wording was obsolete, to be replaced by the current NALC-approved wording. SO 3p. Mistake in NALC Model Standing Orders: agreed by NALC as such, wording to be replaced. SO 3b. Five clear days’ notice required for meetings. Clerk reported that three clear days was the legal requirement: more than this could give rise to items not being included in Agendas when otherwise they could have been. Clerk requested councillors consider revising the requirement in line with the legal minimum. It was proposed that the revisions as noted above be made to Northwold and Whittington Parish Council Standing Orders. Proposed: Cllr Leet; seconded: Cllr Muir. All in favour. Resolved 16/10/6/15.vi.
+
+Item 16/10/6/16. Parish Matters i. Sports & Social Club Roof Quote Two quotes had been received. It was noted that Mr Ellis had associations with the S&SC. Having acknowledged this, and given the known quality of his work, and the acceptability of the price quoted, it was proposed to accept this quote. Proposed: Cllr Anderson; seconded: Cllr Jenkinson. All in favour. Resolved: 16/10/6/16.i ii. Report on potential removal of BT phonebox, Northwold/to consider adoption Clerk reported feedback from BT, which was contradictory, but confirmed that a programme of planning applications to remove phoneboxes had been started. BT is encouraging communities to adopt these phoneboxes. Clerk to request clarification from BT for further consideration. Action: Clerk.
+
+Exclusion of Press and Public (Standing Order 3d) Item 16/10/6/17. To consider grounds maintenance contract As no quotes had been received, it was not necessary to exclude press and public, and consideration was deferred to the next meeting.
+
+The next meeting is to be held on Tuesday 1st November 2016 at 7.30pm in Northwold Village Hall.
+
+Items for the next meeting. Consideration of Budget 2017/18. Councillors to provide dispensation requests; Clerk to issue. Action: Clerk/Councillors Public footpaths – consideration of official registration. Action on trees overhanging the highway. Cllr Jenkinson to provide a list for consideration. Action: Cllr Jenkinson. Whittington Churchyard – to consider adoption of maintenance of Closed churchyard. Creation of detailed map of Northwold and Whittington Parish The meeting closed at 9.20pm
+
+DRAFT UNTIL SIGNED BY THE CHAIR

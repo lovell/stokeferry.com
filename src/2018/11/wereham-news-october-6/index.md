@@ -1,0 +1,78 @@
+---
+title: "Wereham News - October"
+date: "2018-11-27"
+categories: 
+  - "village-pump"
+  - "villages"
+  - "wereham"
+---
+
+Wereham Parish Council
+
+Next Meeting Dates
+
+Tuesday 13 November 2018 at 7.00 pm in the Wereham Village Hall
+
+Agenda items must be received before the end of the month prior to each meeting, items received after this time will not be possible to discuss. Please send to the Parish Clerk at werehampc@gmail.com. The Agendas for meetings are always published on the Wereham Village Notice Board three clear days before the meeting, on the Wereham Parish Council Facebook Page and on the website www.werehamparishcouncil.co.uk You will also find minutes of all meetings here too.
+
+Wereham Cemetery Memorial Safety - The Parish Council are trying to trace relatives or those responsible for memorials. The Wereham Parish Council have recently reviewed its responsibilities for health and safety within the Wereham Cemetery and commissioned a report with a registered qualified inspector of all memorials. The inspector advised the Parish Council of 17 memorials in the cemetery that they classify as ‘dangerous’ to public safety and therefore in order to remedy they recommend fitting what is called a ‘naam bar’ for the current memorial to remain in use, these 17 are memorials that we would like to hear from people about. Please contact the Clerk if you are responsible for a memorial in the cemetery. These memorials have now been laid down by the Parish Council as agreed at their meeting in July 2018 in line with their health and safety responsibilities because no contact had been received. All of the memorials effected can be reinstated by the owners as long as within safety guidelines. The Parish Council recommends that purchasing records are checked for any guarantee of workmanship which it may be possible to claim from. The inspecting company is able to provide costs of fitting a ‘naam’ bar. If you are the person responsible, relative or have knowledge of contact, a response would really be appreciated, as you will have realised, this is a health and safety issue which the Parish Council are obliged to resolve as soon as possible.
+
+New Dog Waste Bins – Two new dog bins have now been installed in the village by the Wereham Parish Council. The new places are at the junction of Back Lane/Church Road and at the junction of Wretton Row and The Row. There are three others are located at the end of Lamas Lane (Flegg Green end); along Cavenham Road towards the public footpath (field end); and on the playing field near the village hall entrance.
+
+These dog bins have been purchased using precept funds, and the costs of emptying them is also paid for in the same way. Please could we all be encouraged to use these bins and keep our village a pleasant place to live.
+
+All are welcome to attend meetings in 2018, if there are topics or ideas that you wish to share or be discussed with the Parish Council at any time during 2018, please email me on werehampc@gmail.com.
+
+Helen Richardson Wereham Parish Clerk and Finance Responsible Person Email werehampc@gmail.com or Phone/Text: 0779 500 6811 Wereham world War 1 commemoration Saturday November 10th 6.45pm-9.30pm.
+
+Four years ago the residents of Wereham staged an evening of entertainment to mark the centenary of the start of World War 1 and to honour those men including those named on the Wereham war memorial who lost their lives fighting for their country. Four years on and the Wereham Heritage group have assembled another talented cast to commemorate the end of the war.
+
+It promises to be an excellent evening of 1918 style entertainment, and reflections of what life was like during the early 1900s. It is guaranteed to inform, entertain and possibly even make you cry! We will have a display of objects for the period including decommissioned weapons, medals, and uniform items. We will hear the stories of local people, enjoy some of the music hall songs that were popular then, and sample some of the food that was eaten during that time.
+
+Tickets are now on sale from the Wereham village hall (£5 per person, children free).
+
+Surely an evening not to be missed.
+
+Poppies for the war memorial We also invite all Wereham households to make a poppy either knitted, crochet or made of felt that will be displayed on our war memorial by the pond to commemorate the 100year anniversary of the end of WW1. Please contact Rosemary or a Wereham craft group member who can provide a pattern if needed. Poppies can be left in the village hall anytime before November 9th.
+
+For more information please contact Debbie or Ian Rye tel 07863049677
+
+WEREHAM VILLAGE HALL-----Early Christmas Festivities.
+
+Put a date in your diaries for December 2nd 2018. Plans are still in the early stages but we are hoping to have a Christmas Lunch, in Wereham Village Hall this year. Now that Wereham has a beautiful, well appointed hall ....please let us try to use it to host a community meal with some entertainment in traditional style. Ideas and input are welcome. This is for the community with help from the community. Enquiries to - Sue and Gordon 01366 858237 Angela and Cliff 01366 500115 Full Details to follow in Group 4 in November.
+
+SEPTEMBER UPDATE FROM THE VILLAGE HALL COMMITTEE
+
+We were blessed with perfect weather for this years’ Summer Fayre and the whole day was a massive success with a constant stream of visitors enjoying the many activities and attractions. Thank you to everyone who was involved: the classic car and tractor owners, Dawn til Dusk Falconry, Jurassic Bark for running the dog show, Legacy Dance, the Craft Group, and to Doreen and the FoWVH without whom none of this would have happened. We raised more than £1600 which is a fantastic achievement!
+
+Our next event will be a Treasure Hunt on Sunday 7th October. Teams will set off from the Village Hall, from 1pm, to walk around the village solving a range of clues and ending up back at the hall for a well-deserved cream tea at approximately 3pm. The route will be broken into sections, allowing you to do as much or as little as you want. Tickets are £5 for adults and £2 for under 12’s. Please book in advance by contacting either Doreen Rolph (01366 500218) or John Eastgate (01366 500766).
+
+The Halloween Quiz night is back on Saturday 27th October, starting at 7.30pm. Tickets are £5 including supper but please bring your own drinks, glasses and snacks. Again, please contact either Doreen or John for tickets.
+
+Both events will also have a raffle (of course!) and so any donations of raffle prizes would be most gratefully received.
+
+Wereham Village Hall Bonus Ball Club
+
+The lucky winners of £60 each in September were Darren Edwards and John Voutt – congratulations to you both!
+
+Helen Richardson, Secretary.
+
+Events list
+
+Bingo - Wereham Village Hall "Cash Prize" Bingo every Wednesday, doors open 6.45, eyes down 7.30pm. Teas/coffees available with complimentary biscuits. For enquiries contact Angela (01366 500115) or Diane (01366500798). Pop up Café – first and third Tuesday of the month, 10.30-1pm. Join us for a slice of homemade cake, a hot drink, a natter and a read of the daily papers all for just £1.50. Light lunches also available – look out for our monthly specials! Cake donations/queries to Doreen on 01366 500218. Next dates are Tuesday 7th and Tuesday 21st August. Car boot and Café – last Sunday of the month, 9am-1pm (café opens at 8am). Next dates are Sunday 26th August and Sunday 30th September. Café serving bacon butties, hot dogs and hot drinks. £5 per pitch. Contact Philip on 07759033492/01366 501330 e-mail rosemary.pease@btinternet.com. Treasure Hunt and Cream Tea – Sunday 7th October from 1pm. Contact Doreen on 01366 500218 or John on 01366 500766. Halloween Quiz Night – Saturday 27th October, 7.30pm. Contact Doreen on 01366 500218 or John on 01366 500766.
+
+Visit our website, www.werehamvlilagehall.co.uk or log onto www.facebook.com/werehamvillagehall to stay up to date with what’s on, or call Lyn, Sara or Sue on 07497 430005 between 10am and 4pm Monday to Friday for more information.
+
+Book your babysitters ready for Saturday November 17th as "Gravel Road" ( rock/ pop group) will be performing in the Village Hall . More information in next month’s issue & on Village hall website.
+
+POPPY SELLERS NEEDED
+
+If you can help with the sale of poppies in Wereham please contact Charles Humphries on 01366 501108.
+
+Wereham Craft Group. Well what a fabulous day was had by all at the summer fayre. I think it must be one of our best. The craft stall did very well in our fundraising efforts for the village hall. We continue to make items for the craft stall alongside baby blankets and quilts for the Linus Project who give them to terminally ill babies and children; they are a hug in a blanket. If anyone has surplus DK yarn/wool or cotton fabric they would like to donate to the group we would be eternally grateful. The girls are also making poppies for Ian Rye’s World War One display in November, some are knitted and some are being made in felt, for the felt ones it is just a matter of putting the 2 pieces together and sewing a black button in the middle. We would very much appreciate some help with making poppies so if anyone out there would like to help please give me a call. I have red DK yarn here also felt and patterns. I will cut out the felt ones for anyone who would like to help and give you black buttons; there will be no expense on your part just some time for sewing or knitting. We are holding another CRAFT FAIR on November 3rd 10am until 4pm in the village hall. We hope you all come along to see all the lovely items on offer. There will be a good cross section of crafters displaying their goods. This will be a very good opportunity to start your Christmas shopping. I am going to look into an open day mid week in early December so watch this space. For details of any of the above please contact me, Rosemary. On 01366 501330, or 07749240606, e-mail rosemary.pease@btinternet.com.
+
+SHORT MAT BOWLS
+
+The numbers playing bowls continue to increase. At the moment we play on a Thursday evening 7.30pm until 9.30pm but when the clocks change at the end of October we will go over to a Thursday afternoon 2pm until 4pm. The start date for the afternoon sessions will 25th October until 4th April, after this date we will revert to Thursday evenings for the summer. We are a very friendly and happy bunch who play for fun rather than being too serious. New players or learners are always welcome. For details please contact Philip on 01366501330 or 07759033492. E-mail rosemary.pease@btinternet.com.
+
+CAR BOOT AND CAFE. Only 2 more car boots left for 2018, October and November we then take a break until the end of January 2019. Why not have a sort out, book a table and earn a bit of cash for your Christmas shopping. Cafe always open with bacon rolls, egg rolls, or sausage in a roll with plenty of tea and coffee. Warm friendly atmosphere, children’s playground. We also run a 50/50 raffle with half the money going to the village hall and the other half to the lucky ticket number. We also have a donated goods stall which raises funds for the village hall, we are happy to receive good items for this stall but please no crockery, glassware or books these items go to Doreen Rolph for her bric a brac stall later on. We will be happy to collect from you any items you would like to donate. For details please contact Philip on 01366 501330 or 07759033492. E-mail rosemary.pease@btinternet.com.

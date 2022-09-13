@@ -1,0 +1,18 @@
+---
+title: "Feltwell Surgery Patient Particpation Group"
+date: "2011-08-27"
+categories: 
+  - "village-pump"
+---
+
+HELLO! From FELTWELL SURGERY PATIENT PARTICIPATION GROUP (FSPPG – for short)
+
+HELP US - HELP THEM - HELP YOU Who are we? We are a group of patients who have been invited to work with the practice to help patients become responsible for their own health and provide practical support, advice and input.
+
+Who are they? They are the doctors, nurses, dispensers, receptionists and everyone working for you at Feltwell Surgery.
+
+Who are you? You are the patients that use Feltwell Surgery when you’re sick, stressed, injured or fed up.
+
+What will the FSPPG do?
+
+FSPPG will work with the practice to provide practical support, to help patients be more involved in their own health treatments and conditions and to provide input and advice to both the practice and the patients. Their work will be entirely as a result of co-operation between the patients and the practice staff. The purpose of the FSPPG is to: • give practice staff and patients the opportunity to discuss topics of mutual interest • provide means for patients to make positive suggestions about the practice. • encourage health education activities within the practice. • develop self-help projects to meet the needs of fellow patients eg befriending, help with transport and bereavement support. • act as a representative group that can be called upon to influence the local provision of health and social care. Have the FSPPG actually done anything yet? Well, we’ve only just got together. However – have you noticed that those little red messages on the electronic information board are less bossy and more friendly? We listened to you when you said you didn’t like the tone of the messages. So they have been altered. Our aim is to do loads more. We are newly formed and having to get to grips with it all ourselves. However, we are finding out things that the staff thought you knew anyway. The more informed we are the clearer and easier things should get for you. For instance, did you know: • you can request a telephone consultation with a doctor/nurse if you have a problem but are unsure if you need to be seen, or if you have a simple query? • that all the reception staff have been trained in triage calls and may be told, in complete confidence, about what’s wrong? They need to know so that you can be seen by the most suitable professional as soon as possible. They are not just being nosey (as so many of us have thought) • you can order your repeat prescriptions online? – if you have access to a computer. • the practice will send you a text message to remind you of your appointment? However they need your up to date mobile number. They know you are often as busy as they are. Each month we will be looking at one or two issues raised by patients and practice staff to see how best we may make improvements. Visit the Feltwell Surgery website www.feltwellsurgery.co.uk and follow the links to Feltwell Patient Participation Group to see what we have done and are doing. If you wish to contact us about anything then either write to us at: Feltwell Surgery Patient Participation Group, Feltwell Surgery Old Brandon Road, Feltwell, Thetford, Norfolk IP26 4AY Or email us at: fsppg\_toni@intamail.com Feltwell Patient Participation Group are: Chairman : Sue Garland Vice Chairman : Toni Arthur-Hay Secretary : Rod Edwards Members ; Vicki Hurst, Jim Marriage, Louise Morris Areas represented: Toni Arthur-Hay - Northwold, Whittington and Stoke Ferry Rod Edwards – Feltwell Sue Garland – Feltwell Vicki Hurrell - Feltwell Jim Marriage - Methwold and Methwold Hythe Louise Morris - Mundford

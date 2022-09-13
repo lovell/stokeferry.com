@@ -1,0 +1,88 @@
+---
+title: "Wereham News - November"
+date: "2018-11-27"
+categories: 
+  - "village-pump"
+  - "villages"
+  - "wereham"
+---
+
+Wereham Craft Group.
+
+By the time you all get to read this we will have had our craft fair. We hope everyone who visited liked what they saw and were able to do some early Christmas shopping. We have been busy sewing and knitting Poppies for Ian’s world war one display on 10th November. As well as fund raising for the village hall we continue with knitting baby blankets for Project Linus. Please contact me if you would like information on anything that we do. Rosemary. Tel 01366 501330, or 07749240606. E-mail rosemary.pease@btinternet.com.
+
+Short Mat Bowls.
+
+The group continues to flourish. We now play on a Thursday afternoon 2pm until 4pm. We will always welcome new players, no experience needed as we will show you what to do. Just come along and enjoy yourself. For further details Contact Philip on 01366 501330 or 07759033492 e-mail rosemary.pease@btinternet.com.
+
+Car Boot and Cafe.
+
+The car boot on 25th November will be the last one for 2018; we then take a short break over Christmas and start up again on Sunday 27th January2019. We would like to say thank you very much for your continued support during 2018 and we look forward to seeing you all again in 2019. For further details please contact Philip on 01366 501330, or 07759033492, e-mail rosemary.pease @btinternet.com.
+
+Wissey Valley Players is an exciting new drama group that has recently been set up for residents of Wereham and all of the surrounding villages. It is already proving to be very popular, but we are keen to attract new members from across the local community. The group meet every Thursday evening from 7.30pm to 9.30pm at Wereham Village Hall. The group is open to all ages, and is a great way to meet new people and enjoy play reading in a relaxed and fun way. We are not only looking for people who enjoy acting and singing, but also those who would like to try their hand at directing, stage management or set design. Can you help to make sets and costumes or props? Or perhaps you have skills in lighting and sound which would be invaluable to us. Why not come along to one of our meetings to find out more and join in. For more information please contact Keith or Chris Murray on 01366 500976
+
+or email: stagestruck\_37@hotmail.com
+
+THE BATTLE’S OVER
+
+Wereham is taking part in this national tribute to the millions of people who lost their lives or returned home dreadfully wounded from the Great War. Over 1000 pipers will be playing at war memorials across the country and across the world. Dominic Rye, will be playing “The Battles O'er” on the bagpipes at 6am on November 11th at the Wereham War Memorial outside the church. Please come and support and commemorate the armistice which was signed 100 years ago at 6am on November 11th 1918. He will also be playing at the WW1 commemoration event Saturday 10th November 6.45 pm starting at Wereham War Memorial and then in the New Wereham Village Hall. ( Tickets, £5 adults, children free required for village hall available from Wereham Village Hall any weekday between 10am and 4 pm). He will also be playing at the Remembrance service November 11th starting 10.45 am at St. Margaret’s church Wereham. All welcome. Please join in with this nationwide day of Commemorative events marking the Centenary of the end of the First World War and paying tribute to the millions killed or wounded in battle and those on the home front who struggled amidst pain and loss to ensure freedom survived.
+
+LIVE BAND
+
+Live music from Gravel Road, featuring Rock and Pop, covers on Saturday 17th November, 7.30pm to 11.30pm. Raffle and bar, in Wereham Village Hall. Tickets £7.50 available from Wereham Village Hall and website or contact Angela 07535399883 or Dianne 07786407950. Proceeds to Wereham Village Hall.
+
+MACMILLAN COFFEE MORNING
+
+A BIG thank you to everyone who helped make our coffee morning such a good success, we raised over £800 (some further donations still to come in). What a wonderful selection of donated cakes/pastries to choose from, and a warm and friendly atmosphere to enjoy this in. My thanks to you all for supporting such a worthy cause. Angela
+
+Christmas Lunch in Wereham Village Hall, on December 9th.
+
+We are pleased to say that there has been a lot of interest ....only a few places left..... contact Angela 500415 or Pauline 501484 soon to secure your booking.
+
+October Update from the Wereham Village Hall Committee
+
+Our new hall really is ‘up and running’ now with regular groups meeting every day of the week as well as numerous weekend bookings. As we start heading ever closer to Christmas, things are only likely to get busier!
+
+At the beginning of October, almost 40 people enjoyed a stroll around the village solving a range of clues set by our resident Quiz master John Eastgate. It was a beautiful sunny afternoon to explore the village and learn some interesting local (and less local) facts. And if that wasn’t taxing enough, our next event will see John in action again at the Halloween quiz night on Saturday 27th October, starting at 7.30pm. Tickets are £5 including supper but please bring your own drinks, glasses and snacks. Tickets available by contacting either Doreen Rolph (01366 500218) or John Eastgate (01366 500766).
+
+We are also very excited to be launching the new Village Cinema. Our first screening will be The Greatest Showman (PG) on Friday 23rd November. Doors open at 7pm with the film starting at 7.45pm. There will be a bar open before and after the screening and a raffle. Tickets are £5 for adults and £3 for juniors (under 15) and can be bought via our online booking system, direct from the hall during normal weekday opening hours (10am-4pm), or on the door.
+
+Wereham Village Hall Bonus Ball Club
+
+The lucky winners of £60 each in September were June Banham and Sandra Amiss – congratulations to you both!
+
+Helen Richardson, Secretary.
+
+Events list
+
+Bingo - Wereham Village Hall "Cash Prize" Bingo every Wednesday, doors open 6.45, eyes down 7.30pm. Teas/coffees available with complimentary biscuits. For enquiries contact Angela (01366 500115) or Diane (01366500798). Pop up Café – first and third Tuesday of the month, 10.30-1pm. Join us for a slice of homemade cake, a hot drink, a natter and a read of the daily papersall for just £1.50. Light lunches also available – look out for our monthly specials! Cake donations/queries to Doreen on 01366 500218. Next dates areTuesday 6th and Tuesday 20th November. Car boot and Café – last Sunday of the month, 9am-1pm (café opens at 8am). Next dates are Sunday 28th October and Sunday 25th November. Café serving bacon butties, hot dogs and hot drinks. £5 per pitch. Contact Philip on 07759033492/01366 501330 e-mail rosemary.pease@btinternet.com. Halloween Quiz Night – Saturday 27th October,7.30pm. Contact Doreen on 01366 500218 or John on 01366 500766. Craft Fair – Saturday 3rd November, 10am – 4pm. Contact Rosemary on 01366 501330. Live Band – Saturday 17th November, 7.30 – 11.30 pm. Contact Angela on 01366 500115. Village Cinema – Friday 23rd November, 7 for 7.45 screening, The Greatest Showman. Village Christmas Lunch – Sunday 9th December, more details next month.
+
+Visit our website, www.werehamvillagehall.co.uk or log onto www.facebook.com/werehamvillagehall to stay up to date with what’s on, or call Lyn, Sara or Sure on 07497 430005 between 10am and 4pm Monday to Friday for more information.
+
+Wereham Parish Council
+
+Next Meeting Dates
+
+Tuesday 13 November 2018 at 7.00 pm in the Wereham Village Hall
+
+Agenda items must be received before the end of the month prior to each meeting, items received after this time will not be possible to discuss. Please send to the Parish Clerk at werehampc@gmail.com. The Agendas for meetings are always published on the Wereham Village Notice Board three clear days before the meeting, on the Wereham Parish Council Facebook Page and on the website www.werehamparishcouncil.co.uk You will also find minutes of all meetings here too.
+
+Public: Notice Dated 07.10.18 regarding Flies. Please note that by the time you read this there may be further updates available on the Wereham PC Website.
+
+Dear residents and surrounding areas you will be aware that there had been an increase in flies. As before we can confirm that this is from the Glazewing site. The summers of 2016 and 2017 we suffered from this issue and after investigating and intervention from the Environment Agency, who is the appropriate authority for this issue, they discovered that animal feed wasn't being processed quick enough. Since this time the site no longer processes animal feed waste but the machine that processes other waste had broken down, we now understand, at the beginning of September. The Parish Council after being advised this was to be fixed, has however contacted the Environment Agency to report. They advised that they had already had communications from members of the public who reported it, which was excellent, which meant they have decided to intervene and pay a visit to the site. They have advised that they will issue a newsletter for the public after their visit via the Parish Council. The newsletter will be issued as soon as possible. On Facebook and as before the Wereham Parish Council. The previous newsletter of 2017 is still on the Wereham Parish Council news section. Should there be further updates we will let you know otherwise please share this with the Public.
+
+The Environment Agency have emailed the Wereham Parish Council and advised:
+
+"We are aware of the increase in fly activity at the Glazewing site and have had numerous reports from other residents in the village. My colleagues have been attending site at least once each week to assess the situation and are working with the site to get the offending waste cleared. Where you have fly activity at your property that is causing a nuisance, please report the issue to our incident hotline in the first instance: 0800 80 70 60. Your report is then passed to an available member of my team to be assessed and responded to accordingly. Given the increase in problems and reports again this year, I believe my colleagues will be drafting another update newsletter to send round the village to make residents aware of the situation and what intervention the EA are taking."
+
+A newsletter was issued by them and is available to view on the website.
+
+Wereham Cemetery Memorial Safety - The Parish Council are trying to trace relatives or those responsible for memorials. The Wereham Parish Council have recently reviewed its responsibilities for health and safety within the Wereham Cemetery and commissioned a report with a registered qualified inspector of all memorials. The inspector advised the Parish Council of 17 memorials in the cemetery that they classify as ‘dangerous’ to public safety and therefore in order to remedy they recommend fitting what is called a ‘naam bar’ for the current memorial to remain in use, these 17 are memorials that we would like to hear from people about. Please contact the Clerk if you are responsible for a memorial in the cemetery. These memorials have now been laid down by the Parish Council as agreed at their meeting in July 2018 in line with their health and safety responsibilities because no contact had been received. All of the memorials effected can be reinstated by the owners as long as within safety guidelines. The Parish Council recommends that purchasing records are checked for any guarantee of workmanship which it may be possible to claim from. The inspecting company is able to provide costs of fitting a ‘naam’ bar. If you are the person responsible, relative or have knowledge of contact, a response would really be appreciated, as you will have realised, this is a health and safety issue which the Parish Council are obliged to resolve as soon as possible.
+
+New Dog Waste Bins – Two new dog bins have now been installed in the village by the Wereham Parish Council. The new places are at the junction of Back Lane/Church Road and at the junction of Wretton Row and The Row. There are three others are located at the end of Lamas Lane (Flegg Green end); along Cavenham Road towards the public footpath (field end); and on the playing field near the village hall entrance.
+
+These dog bins have been purchased using precept funds, and the costs of emptying them is also paid for in the same way. Please could we all be encouraged to use these bins and keep are village a pleasant place to live.
+
+All are welcome to attend meetings in 2018, if there are topics or ideas that you wish to share or be discussed with the Parish Council at any time during 2018, please email me on werehampc@gmail.com.
+
+Helen Richardson Wereham Parish Clerk and Finance Responsible Person Email werehampc@gmail.com or Phone/Text: 0779 500 6811

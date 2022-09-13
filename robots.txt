@@ -1,0 +1,4 @@
+Sitemap: https://www.stokeferry.com/sitemap.xml
+
+User-agent: *
+Allow: /

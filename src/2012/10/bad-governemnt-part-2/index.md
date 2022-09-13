@@ -1,0 +1,30 @@
+---
+title: "Bad Governemnt Part 2"
+date: "2012-10-02"
+categories: 
+  - "village-pump"
+---
+
+John Major
+
+I have identified the Prime Ministers as largely responsible for the bad government that has occurred during their term of office.  Some may regard this as rather unfair but with our parliamentary party system our MPs go in fear of the whips, failure to support the PM can lead to their rejection from the Party and, subsequently, the loss of their job. The result is that the PM along with their cabinet can dictate policy, a strong personality such as Mrs Thatcher the PM can dominate the cabinet and behave almost as dictator so that we have autocratic government.
+
+After Mrs Thatcher left in November 1990, to the surprise of some, John Major was made leader of the Conservative Party and, of course, Prime Minister.  He served in those roles until April 1997.  He was a sharp contrast to his predecessor, with a quiet voice and pleasant manner, he claimed to believe in consensual government, within his Party that is, true he was not an autocrat but he gathered a small team around him in the cabinet and that team then ran the country. Perhaps the most significant difference between his team and Mrs T was in the attitude towardsEurope, along with these leading members in his cabinet John Major was in favour of closer ties.
+
+In 1991 he strongly supported George W Bush in his plan to take action againstIraq following their invasion ofKuwait.  Opinion may be divided on this issue,Kuwait was not a state to be admired, and it is possible thatIraq had more justification for its action than was widely known, but the invasion byIraq was deemed to be against international law.  Arguably his action was subsequently justified by the overwhelming defeat ofIraq’s armed forces and the restoration ofKuwait’s sovereignty. Also, in 1991, he signed the Maastricht Treaty, an act unpopular with the right wing of his party.
+
+In 1992 there was a general election, John Major was re-elected MP for Huntingdon with the largest majority in electoral history.  The Conservative Party won with an overall majority, although much reduced, and John Major continued as Prime Minister. On 16 September 1992 the British Government was forced to leave the ERM (European Exchange Rate Mechanism, joined in the last months of Mrs Thatcher’s Premiership, against her better judgement), this was a disaster.  Nigel Lawson as Chancellor had been determined to avoid this and spent a huge amount of our money trying to support the pound against the market, but he lost in the end and the cost to the nation was considerable.  This became known as Black Wednesday.  John Major’s support for joining the ERM was seen as a serious error.  He continued to defend his support for the ERM even after Black Wednesday and his popularity suffered a blow from which it never recovered.
+
+Leaving the ERM led to some economic recovery and the long recession was declared at an end in April 1993.  Despite the ERM fiasco a serious debate continued on whether or not Britain should join the Euro, John Major presided and there is little doubt that he was in favour.
+
+Northern Ireland had continued to be disrupted by the conflict with the IRA, US Senator George Mitchell had been invited to look into the situation and a ceasefire existed whilst he conducted his study, he produced a report with a number of recommendations for action by the British Government, the fundamental recommendation for movement towards peace became known as the Mitchell principle.  This was rejected by John Major and that rejection led to an end of the ceasefire with the consequence of further terrorist actions.  Without doubt this was a serious error of judgement.
+
+ The war inBosnia was worrying many people and the atrocities led to demands for intervention by the West.  John Major strongly opposed intervention and would not countenance air strikes.  Another error of judgement?
+
+He continued to support Thatcherism aims and sought further privatisations.  In particular he went for the major privatisation that even Mrs Thatcher had opposed, that of British Rail.  British Rail was privatised in stages between 1994 and 1997.  With hindsight even those who supported him on this issue would probably agree it was yet another wrong decision.  We also saw the introduction of Private Finance Initiatives whilst he was prime Minister, another dubious decision.
+
+There was considerable disquiet in his Party over his actions, those on the right did not like his acceptance of many aspects of the Maastricht Treaty and thought that he should have fought more strongly against many clauses, he was never forgiven his support for the ERM, his decisions in relation to Bosnia, British Rail and Northern Ireland also lost him many friends.  The nation had become disenchanted.  By 1995 there was a significant number of Tory MPs very unhappy with his leadership, he was also upset by the extent of sleaze that was exposed in the Party.  He resigned as leader and put himself up for re-election by the parliamentary Party.  Not one of the potential challengers put themselves forward and John was re-elected with only 34 votes against him.
+
+Like his predecessor he adopted a laid back attitude to immigration, this did not seem to worry the parliamentary Party but it displeased many people outside and added further to his falling popularity. When his parliament came to an end he claimed that he had been a success and that during his term there had been an improvement in the economy, that interest rates had fallen from 14% to 6% and unemployment fell to 1.6million.  But many might argue that these improvements were despite his actions rather than because of them.  He failed to inspire his Party, he failed to do anything to restore the fortunes of British industry and scientific research and, whilst regarded as honest and sincere, he was seen as weak and ineffectual and responsible for many errors of judgement.
+
+In 1997 the Conservatives were swept from power when Tony Blair, heading ‘New labour’, won the general election with an overwhelming majority. Ron Watts

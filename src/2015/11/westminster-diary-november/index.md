@@ -1,0 +1,8 @@
+---
+title: "Westminster Diary - November"
+date: "2015-11-20"
+categories: 
+  - "village-pump"
+---
+
+South West Norfolk is a treasure trove of stunning countryside, superb forest, incredible bio diversity and the very special Fenland waterways. The network of canals are still used to transport goods and material but also offer the opportunity to enjoy a leisurely afternoon travelling on a long boat. I joined Sheena Hartley on her new venture, Narrow Waters; launching from Upwell, Sheena navigates through the canals providing day trips, special events or business gatherings. It was great to meet such an enterprising individual but also to see the river banks and the valuable role they play in supporting our environment. The network of rivers are fundamental to the countryside we all enjoy and the work currently being done on rivers like the Wissey for example, to re-wild the area, encourage wildlife but also help to reduce the risk of flooding further downstream. The Wissey winds its way through some fabulous woodland and the value of the UK’s forests was highlighted earlier this month with the British forestry industry producing a record 12 million tonnes of wood in 2014; an increase of a third in wood production since 2008. The industry employs 40,000 people and our managed forests not only provide a valuable source of timber but also offer much in the way of recreational opportunities, supporting bio diversity and wildlife. I was therefore delighted to meet the Friends of Thetford Forest in Feltwell. Along with the DEFRA Minister Rory Stewart we discussed the importance of Thetford Forest, not only to the local community, but also its value to the UK as a whole.

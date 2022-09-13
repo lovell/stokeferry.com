@@ -1,0 +1,37 @@
+---
+title: "Anne Brown's Peruvian Adventure Part 2"
+date: "2005-03-01"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+---
+
+The seond installament of Anne's visit to Peru
+
+(Anne is the relief Postmistress at Stoke Ferry Post Office)
+
+Up early to cross the pass of Patapampa, between the East and West Andes. We did not need a knock on the door to wake us, as a local was paid to shout out the time, about 6.30 am, and to give out the world and local news, also any local notices. (Few people have radios, or TVs and there were no newspapers) The main news was the local strike. Roads were closed and the power turned off in an attempt to get another election for Mayor of the area. The last one, being corrupt, was shot, the next 4 in line rapidly moved to other parts of the country, and he who came 6th in the last election was not wanted. I discovered that when I had heard fireworks in the evenings it was really gunfire. In one hotel, the instructions on my door were to leave all firearms at reception. The pass was nearly 5,000 meters above sea level and the views stunning. It was still below freezing when we stopped, but the snow was too dry to make snowballs. The lakes were mostly frozen and ibis, sheep, cattle and alpaca were trying to drink.
+
+We stopped for a light lunch and I had minestrone soup. I was given knife, fork and spoon and found out why; my large dish was piled high with beef on the bone, a slice of corn, whole potatoes, carrots, celery and noodles in a green liquid, enough for a main meal for two. This was the first time I used my fingers to eat soup. It was the waiters first day here and the proceedings were equal to being in an episode of Faulty Towers. Well worth £2.00.just for the entertainment.
+
+Then to visit a 'typical' farm. A yard with, thatched mud type buildings, topped with pairs of small pottery bulls, there were a couple of dogs and two guinea pigs in a hutch. We were shown traditional weaving and sampled their food. The potatoes and butter were good but the cheese was the only thing in the country I could not eat. (I tried to feed it to a dog, but he did not like it either) there were many types of peas and beans and no meat. We did not have enough time to ask real questions, but I expect the townies in our group had been there long enough. On to Cusco where our unheated hotel had hot showers and 3 hot water bottles each.
+
+When nearing lake Titicaca I saw a shallow lake covered with green algae and cattle staked out to graze in the water. They must have chewed their cud standing up. Due to the strikers closing the road the last mile to the Lake had to be walked. We stopped to buy presents for the children, sweets and oranges. This is probably the highest navigable lake in the world and about the size of Norfolk, and is fed by up to 30 rivers with only one flowing out of it. Half is in Peru and Half in Bolivia, hence lots of black market goods here. Urdos Indians have lived on the lake for at least 500 years. The surrounding soil is very poor and very stony, and at first they had to survive on potatoes, fish and reed roots. Now they have intermarried with Aymara Indians and often live on the mainland and get lots income from tourists.
+
+We visited the islands on the western side of the lake, going by boat and being told which island to go to first. It was tourists all the way. The floating islands, about half the size of a football pitch, and made from reed, are anchored, fresh layers of reed are added making them thicker and they have to be abandoned when they touch the lake bottom, as they take root and would not rise and fall with the tide. The huts the Urdos live in, school, churches and the local boats are also reed. We paid for a peaceful reed boat ride and saw fish farms. The school children seemed to spend all their days singing to tourists and then demanding money for drawings and tatty postcards. The fact we had given presents did not mean that their parents would not still want money. That was how it seemed, so I did not hand over my oranges but ate them myself. Cormorants were kept and their blood drunk to cure/prevent fits. Other water birds went into the pot with lots of lentils. On the shores they still use bartering to trade fish for other food. Pottery and woollen goods were for sale everywhere (they buy them sale or return) and my thoughts were that many of the 'Islanders' came over on the first boat of the day.
+
+The Urdos people wish to break away from Peru and Bolivia and form their own country. Pretty volatile over here so I expect in a few years there will be trouble.
+
+I used an Internet cafe in Cusco - a new experience - especially in Spanish and @ not on the main keyboard, a helpful local gentleman helped me, twice, to see photos of my new great niece. We visited the Erotica Temple; all the statues could have been mistaken for tall mushrooms. At a police checkpoint a coach, with the curtains drawn, was paying money to be allowed through without being searched for stolen goods from Bolivia. Locals made exhaust pipes from tin cans and were selling them at roadside. They also drilled holes in plastic bottles to make sprinklers. Very little rubbish was wasted. Old tyres were made into sandals. No benefits here; if you lived in a city, and did not work you and your family were given one hot meal a day, and did not have to pay rent etc. In the country you had to be self-sufficient, and I think families kept elderly relatives.
+
+My evening meal was spaghetti, cooked with cheese and herbs accompanied by free traditional cusco sour (lemon flavoured spirit beaten into egg white), free salted fried corn and a traditional band in costume, playing panpipes drums and guitars to accompany the dancers.
+
+Next a visit to Pisac Sunday market. We all had hot bread rolls containing cheese and tomatoes, and wandered through streets selling to tourists, and then to back streets full of many, many types of fruit and vegetables, everything so colourful. On to Ollantay the only Inca stronghold to have resisted Spanish attacks. I did not climb to the top but went to look at large cacti covered with grey beetles, cochineal; I squashed some and stained my hands red.
+
+On to a local 'pub,' to see an old lady brewing, and to try, home brewed (3%) beer and play frogs (throwing discs into numbered holes). The barley straw was fed to the livestock, about 100 guinea pigs. Then the best basic hotel of the holiday, and a buffet meal; bean and potato soup, quiche, alpaca and rice followed by chocolate cake, lemon mousse and a dryish pastry with layers of jam. (Small amounts of each) - we could not help ourselves!
+
+For breakfast we had fried potatoes and red onion both thinly sliced with scrambled egg and small thick pancakes, delicious. As there are no roads here, rather than walk the Inca Trail, we took a train to the foot of Machu Piccu; passing the scene of a recent mud slide - the rail line and a few houses were swept away recently. The line was repaired in two days but after 3 months 18 people are still buried under piles of rocks. The rail line doubled as a street and our hotel was adjoining the platform. Every train had to hoot continually, to avoid running over people, but thank goodness they did not run at night One vehicle on the track was a Bedford van with train wheels. There were humming birds in the gardens and people selling things everywhere.
+
+To be continued next month......
+
+Anne Brown

@@ -1,0 +1,42 @@
+---
+title: "The French in the Second World War"
+date: "2009-12-01"
+categories: 
+  - "village-pump"
+---
+
+First part of a two part article on The French in World war II
+
+The French were our allies in the first world war and in the second. Prior to the start of hostilities in the second world war we signed a joint pact with the French that neither would agree to an armistice with the Germans without mutual consent. At the start of the war the French and the British forces outnumbered the Germans in men and tanks and their generals were confident that they could contain any attack by the Germans, complacent even. The truth is, however, that they were mostly old men still living in the times of the first world war. The French General Gamelin was overall commander of the allied forces, he was confident that the defensive Maginot Line would contain a frontal attack. According to General De Gaulle, Gamelin had no radio or telephone communications with his forces from his HQ and relied on driving round to the different sectors, thinking that 48 hours was an adequately quick response to a changing situation. Although, with the British, he had more tanks at his disposal than the Germans they were inferior tanks and he had chosen to distribute them amongst his infantry. He had more artillery than the Germans but the French relied entirely on horses to move their guns. Once the Germans launched their blitzkreig attack in April 1940, using massed panzers to attack the forces through the lowlands to the north, the inadequacies of the allies' strategy and equipment became apparent and the outcome was inevitable. General Gamelin was sacked and replaced by 74 year old General Weygand, who was equally incompetent. The French president, Reynaud, resigned and they called on 86 year old Field Marshall Petain.
+
+The British fought hard but soon realised that the situation was hopeless and concentrated on evacuating as many of their troops from Dunkerque as possible. Some of the French forces also fought bravely but the situation for them was even more chaotic. Petain was quick to sign an armistice with the following terms:
+
+Germany would occupy three fifths of France.
+
+All French warships to be recalled and placed under German supervision.
+
+All German refugees from the Nazis to be handed over.
+
+France to pay the cost of the German occupation.
+
+The 1.5 million French PoWs would remain PoWs.
+
+That any French national found fighting with the British would be shot.
+
+Two fifths of France remained unoccupied and Petain subsequently set up a French government at Vichy to control the unoccupied territory. Before the total collapse of France the British managed to evacuate over 338,000 British troops and 118,000 French, Dutch and Belgians. These French forces formed the core of what was to become the Free French. Many French people quite unjustifiably blamed the British for the collapse of France and old rivalries and hostilities between France and Britain resurfaced in some quarters. Some French people were sympathetic to the Nazis and others became so.
+
+Just before the French surrender Churchill's government offered France a solemn union with Great Britain. "France and Great Britain to become one nation every citizen of each country would become a citizen of the other, no longer two nations but one Franco-British Union" - but France declined. The motive behind Churchill's offer and the reason for France declining can only be a matter of conjecture.
+
+As a boy during the war I accepted the view given by our leaders of the French as our brave allies, we saw the Free French forces depicted on newsreels with De Gaulle strutting like a peacock. Then, after the war, the French were regarded as victors and given a sector to control in Western Germany. It was not until some time after the war that I realised the extent to which some of the French were somewhat embarrassed to talk about the war, a situation that I think has persisted to this day. The first indication that I had was around about 1960 when we had a young French au pair. She told me that her father had been an airforce pilot during the war, when I asked her what type of aeroplane he flew she told me it was a Messerschmitt. It became clear that there were some French in Vichy France that volunteered to join the German forces. I do not know the extent to which that occurred, it is something that nobody wants to talk about.
+
+France had a significant empire, mostly in Africa and the far-east, with some French forces and personnel located in those places. The sudden and unexpected collapse of France left French people in their colonies in a difficult position, most opted to give their allegiance to the nominally neutral Vichy government, the exceptions were Chad, The Ivory Coast and the New Hebrides. The first major problem for the British was the French navy, if that was to fall into the hands of the Germans it would seriously threaten the British position at sea where the Royal Navy had supremacy. A major part of the French fleet was located at Oran in Morocco. Churchill sent a British force there to confront the French. The British admiral, Admiral Somerville, gave the French admiral a number of options;
+
+to join him, to take his ships to a British port, to take his ships to a port in the French West Indies or to scuttle his ships. The French rejected these offers stating his intention to remain loyal to the French government and to obey his orders to return his ships to France to be put under German supervision. With regret the British admiral gave the orders to fire on the French ships. In just five minutes three French battleships were destroyed along with a number of smaller naval ships and over 1000 French sailors were killed. The French people were extremely upset over the incident. Many people in this country were shocked, but there can be no doubt it was the right thing to do.
+
+After the Battle of Britain, Hitler realised that without control of the air and without a stronger navy he could not launch an invasion force across the channel. Equally there was not the slightest chance that Britain could launch an attack on the Germans in France. The war between Britain and Germany in Europe became an air-war with both sides resorting to bombing. The ground battles moved to North Africa. Ethiopia was part of the Italian Empire and Mussolini, aware of Britain's weakness, had joined with the Germans, and sent his forces from Ethiopia, where he had 300,000 troops, to invade British Somaliland. A force of 30,000 Italians succeeded in driving the 6,000 British out. The Italians then launched attacks on Kenya and the Sudan, but they had their eyes on the big prize - Egypt. On 13 September 1941 the Italians crossed the border from Libya, another part of their empire, into Egypt and three days later succeeded in taking Sidi Barrani. 30,000 British troops under Wavell found themselves facing 250,000 Italians. Churchill had no choice but to send more men and tanks even though that left him weak at home. The Suez canal was absolutely essential to Britain's supply situation and had to be defended.
+
+At about the same time, the willingness of the Vichy French to fight the British was demonstrated again when an attack was launched by the British against the port of Dakar. Free French forces were involved in the attack supported by the Royal Navy. It was hoped, that this attack would prevent Dakar falling into German hands to be used as a U-Boat base. It was thought that some of the French forces in Dakar would support the Free French forces but they did not, they fought hard and drove off the assault. To further demonstrate the position of Vichy France in the war, the Vichy air force launched a 100 bomber raid on the British base at Gibraltar and Petain repealed the French Law forbidding the incitement of racial hatred and action began against the Jewish community in Vichy France. A month later Petain, who had become an autocratic leader, called upon the French people to co-operate with the Germans. (The neutral USA impounded French ships in American ports in retaliation.)
+
+In December 1940 it was reported that Admiral Darlan, the most senior military figure in Vichy France, had met with Hitler and tried to convince him that France would be a better ally for Germany than either Italy or Spain. It became apparent that Vichy France was an enemy of Britain rather than an ally.
+
+Ron Watts

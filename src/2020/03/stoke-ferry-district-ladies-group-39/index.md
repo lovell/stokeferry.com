@@ -1,0 +1,10 @@
+---
+title: "STOKE FERRY @ DISTRICT LADIES GROUP"
+date: "2020-03-04"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+  - "villages"
+---
+
+Minutes of the meeting held on Feb 5th Mrs Armsby welcomed 14 members & 2 visitors. APOLOGIES were received from Elaine Ford, Carol Thulbourne & Audrey Hudson. Minutes of the last meeting were read & signed. ARISING Further to the May meeting that is still to be arranged, Janet Cooper said that she had found someone in Barton Bendish who could give a Norfolk themed talk. Members agreed, so Janet will find out cost & availability. Anita Horgen presented Jenny Elsey with her birthday card. There are no members’ birthdays in March. The March meeting will be a talk by Colin Mason who is an honorary Commander for the Lakenheath air base. ROTAS door & raffle---Sheila Smith & Anita Horgen Teas--------------Jenny Elsey & Gillian Smith VOT--------------Anita Horgen Mrs Armsby then introduced Doug, who is a volunteer with the East Anglian Air Ambulance. The service has been in operation for 20 years, & has 2 helicopters covering Norfolk, Suffolk, Cambridgeshire & Bedfordshire. Flights to the farthest point can take up to 25 minutes, but survival rate increases significantly in a cardiac arrest, if a bystander can begin cardio-pulmonary resuscitation until medical help arrives. It is hoped to begin teaching this in secondary schools next year as part of the curriculum. Doug then demonstrated how to do CPR using a dummy, & several members had a go at it. He went on to show us an emergency defibrillator, which are situated in accessible areas such as disused telephone boxes & outside village halls. He explained that they are easy to use because a recorded message will talk you through every stage. He showed us where to fit the chest pads, & explained how using it can improve the patient’s chances of survival. Doug was thanked by Doris Armsby, & presented with a donation to the EAAA, which costs a staggering 12-14 million pounds a year to run. The raffle was won by Valerie Kirchen, Anita horgen &jenny Elsey. The meeting ended at 9.30pm. Claire Lankfer (secretary)

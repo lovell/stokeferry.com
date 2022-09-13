@@ -1,0 +1,21 @@
+---
+title: "Riverwatch"
+date: "2008-12-01"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+---
+
+Ivor reflects on the history of the Rver Wissey
+
+The river Wissey is timeless but its character and purpose has seen many changes. Often comparisons with the past find a sad deterioration so it is pleasing that our own river is now at the pinnacle of its life to date. Today there is an overpowering peace but a step-back in time shows a different picture.
+
+Rivers were the essential highways of our country. Roads existed but lacked traffic. Juggernauts had not been invented and rivers were the motorways of yesteryear. Railways served the same purpose and competition was fierce but for a whole era the rivers ruled supreme. Large fleets of barges were the workhorses to transport goods extreme distances, They served the river Ouse from the port of Kings Lynn to the Midlands and beyond. The river Wissey is a junction off this main waterway and, although the entrance is unassuming and the width narrow, it was the integral route to the prospering sugar beet factory at Wissington. With up and down traffic, navigation was always slow and difficult and made more so with many barges having several more in tow. Whilst sugar beet was the main cargo large quantities of other heavy goods also travelled the river to our villages. The river was big business!
+
+All journeys up the river Wissey have to negotiate the low bridge at Hilgay so masts were laid flat or chimneys collapsed. A few miles beyond was the tiny hamlet of Wissington with its factory. Continuous growth and demand meant huge numbers of barges needed to park and unload and then turn round for the return passage so in the early 1940's the geography of the river was changed. A Dutch company (Dredging & Construction Ltd) carried out the task of diverting the river and digging out a much wider mooring area. The enormous quantities of extracted clay were used as flood defence banks alongside the river from Denver to Stoke Ferry. Flooding was a constant problem and steam bucket and chain dredgers worked continuously. Today the houses of Wissington are no longer but the course of the original river and the resultant islands can clearly be seen. Further up-river at Oxborough a night and day ferry operated but beyond the water was too shallow to navigate so the village of Northwold escaped any water invasion!
+
+The cleanliness of the river was never a concern as pollution was accepted as a natural by-product of society but the main fear was salt water. Then, with no sluice at Ten Mile Bank to regulate and separate the river Ouse from the sea, the lower reaches of the river Wissey were often tidal. Salt water not only flooded valuable farmland but also threatened fish stocks. Each riverside village had its own boatyard and commercial moorings and many smaller craft operated to provide a host of river related services. Life was basic and rough - manual work was over-subscribed and wages hard earned. The entire length saw numerous individuals totally dependent upon the water for their livelihoods. Professional fishermen would sell their catches. Dead lines and nets were used for pike and perch and more. Eel trappers claimed nomadic rights with their long conical traps staked everywhere. In fact any fish, big and small, was eagerly sought and eaten. Fish from the river Ouse were even boxed in ice and sent to London markets. Our river Wissey has always been renowned for its fish and fishing and way back in the late 1800's it is recorded that giant sturgeon were caught in it!
+
+As always needs change and the choice of transport changed - some call it progression whilst others disagree. However our river also became tired. Its struggle to provide proper drainage continued and in the mid 1950's work commenced to build the Cut Off Channel alongside the existing course to help share the load. The remedy was highly successful and with a new sluice at Denver controlling the level and flow of several hundred miles of our inland waters, the river Wissey has fully recovered. It is now fully mature and in excellent health and the peace that it enjoys is surely a just reward that befits a faithful servant to mankind. Long may it flow!
+
+By Ivor Hook

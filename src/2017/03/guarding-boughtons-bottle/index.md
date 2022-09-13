@@ -1,0 +1,12 @@
+---
+title: "Guarding Boughton's Bottle"
+date: "2017-03-20"
+categories: 
+  - "boughton"
+  - "village-pump"
+  - "villages"
+---
+
+. Following the terrible experience of the Bottle being kidnapped we realised we had to change our approach to security. The safety of this very valuable asset could no longer be taken for granted. Christmas and New Year celebrations would introduce a period of considerable vulnerability. Consultation with some of our countries top security experts, New Scotland Yard, Westminster and a group of people based in Hereford provided us with a robust strategy. MI6 & MI5 were particularly helpful. They secretly surveyed Boughton and it’s surrounds, All saints Church, and where in the Church the bottle was kept. Contrary to their initial advice, we stated that we refuse to put the bottle under lock & Key; it has to be on open display to encourage vital contribution to our funds. In addition a high level favour was called in. “It’s payback time Mr President! Our bottle helped you raise dollars during your Whitehouse charity functions and we also let your Astronaughts take it to the moon. Now Boughton needs your help. Can we borrow a group of your Navy Seals as back up for our MI6 Black ops team?” President (at the time Elect) Trump also supported our operations, now that he knows where Boughton is. He is however still having trouble with the location of Norfolk, there being one in Virginia, causing him some considerable confusion. All our requests were granted. A number of field agents were positioned around the village. The US Navy Seals were concealed in the stand of reeds at the Mill Hill road side of the pond. Geoff’s piglets were charged with forward observations, providing our crack units with vital information regarding the approach of any known villains or suspicious activity. We are very pleased to report that our covert operations were entirely successful; the bottle was safe all through the festive season. We wish to thank Father Christmas, MI6, MI5, US Navy Seals, and Geoff’s piglets for keeping the Bottle safe over Christmas and the New Year. We were denied permission to take photographs of the covert operatives, but they did send us a picture of them training with the bottle. Perhaps our Parish Council will consider granting Geoff’s Piglets the freedom of Boughton.? They pretty much go where they like anyway. If any of our readers has any information please call Whitehall 1212.
+
+Frank & Tim Happy 2017

@@ -1,0 +1,10 @@
+---
+title: "STOKE FERRY AND DISTRICT LADIES GROUP"
+date: "2017-07-12"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+  - "villages"
+---
+
+Minutes of the meeting held on 7th June 2017 Mrs. Hazel Hearne welcomed 20 members. Apologies were received from Doris Armsby, Claire Lankfer, Janet Cooper and Mavis Smith. The minutes of the last meeting were read and signed. AOB Gillian Smith asked about the outing in August. The date has to be changed to either the 2nd or 9th August. There was a show of hands and the 9th August was chosen. It was decided that a mystery tour organised by Harrods, to include a cream tea, was be best option. This tour will cost about £25 and is open to all. The more people to book the cheaper it will be. Anyone interested should contact Gillian Smith on 01553 810753 before the end Of June as payment is needed before the outing. A message came from Rosemary Pease of Wereham who will hold a craft meeting on the 2nd Tuesday of the month 10.30-12.30. She would like to recruit someone with a spinning wheel for everyone to use. Actually, what she meant was that she is going to engage a lady with a spinning wheel to demonstrate and teach those interested and wondered whether members of the Ladies Group would like to attend. Anyone interested should contact 500 757. Hazel Hearne presented a birthday card to Anita Horgen. Rota Teas: Heather Durrance and Valerie Kirchen Door and raffle: Audrey Hudson and Pam Cann Vote of thanks: Carol Thulboume Birthdays: Hazel Hearne and Gypsie Duncan We had an amazingly well organised fish and chip supper fetched for us by Valerie Kirchen's daughters. All the packs were named which made the distribution so easy. Everything was hot and very tasty and it made a lovely social evening enjoyed by all. It was a very successful venture and the weather would not have been suitable for a barbecue. The raffle was won by Rosemary White, Wendy Quadling and Janet Burns The meeting ended at about 9.15 pm. Janet Burns Acting Secretary

@@ -1,0 +1,34 @@
+---
+title: "Anglican newsletter"
+date: "2007-06-01"
+categories: 
+  - "village-pump"
+---
+
+Keith has a critical look at the "coronation" of Gordon brown and compares it to events in the Anglican Church
+
+May 2007 Newsletter
+
+By the time this is printed, Gordon Brown will probably be even more certain to be entering No 10 than he is now, at the time I am writing. I was reading that he will, uniquely among modern Prime Ministers, have no debts to pay to those who supported him on the way - unless it is to Tony and I suspect he will not be rushing to pay off debts in that direction. No members of the Party nor of the Unions (nor anyone else) have been instrumental in bringing him to power. He can govern from his own set of first principles with a large enough majority to be able to get his own way if he really wants to.
+
+He reminds me of the Anglican Vicars and Rectors, who so long as they do nothing scandalous, cannot be removed from their 'office' or 'incumbency' unless and until they reach the age of 70, if they do not want to go voluntarily. Like Gordon Brown they can seek to change the Churches and Parishes in which they work into a mould that they think appropriate, even against the expressed or silent objections of their flocks. One of my daughters used to attend a very large Church in Nottingham, where the Vicar brought in a way of doing things, which was different from the previous practice there. A schism eventually resulted between those who wanted much less change and those who fully supported it. The Vicar was under considerable pressure and eventually did the right thing. He resigned his incumbency and started a new Church with 70 or 80 parishioners who wanted to support him. They are now an 'independent Anglican' Church, seeking ultimately to be recognized by the Church of England and taken back in as a new entity. Meanwhile the more traditionalist members of the congregation are seeking a Vicar more to their liking. One hopes that both Churches will thrive - no one knows what God is really like and being told that we are made in his image (one of the precepts of Judaism and Christianity and maybe - but I do not know - of Islam) does not mean that he is made in our image! Both Churches are in his image, however different they may appear to each other.
+
+There was a similar story in Downham Market within the last year or so and we now have two thriving Churches where before we had one.
+
+What about our Gordon? Leftwingers are generally more religious about their beliefs than rightwingers. They are a little more likely to insist that since they are right, everyone must go along with their views than the more pragmatic (or, if you are of a left wing disposition 'opportunistic') rightwing parties. Tony Blair did not have wings at all (within this metaphor, anyway) so far as I can see, being a wholly pragmatic centrist, even though led by strong moral (and religious) beliefs. So we can expect something a little different from Mr Brown - who looks to be in the Scottish Socialist Presbyterian mould - hence the rather dour, stern approach to his politics. He is without question a conviction politician.
+
+My hope is that he will be truly alert to what we are all saying and doing around him - that he will not find it necessary to permit or even force a schism in the country - whether between the Scots and the English/Welsh (will they wish to remain 'British'?) or between other groupings by the exercise of rigid policies. I hope he will have the sensitivity to know when he is going too far in the prosecution of his beliefs. Unlike the Anglican Vicar, of course, he does not have the divine right to continue in post until his 70th birthday, which is a real blessing. Again, unlike the Anglican Vicar, who may well feel that he is answerable only to God, Gordon will be answerable to every man jack/woman jill of us in a relatively short time. And this, of course, is what really should make him responsive to us.
+
+There is unfortunately the opposite danger - I think Gordon may be more immune to this than his predecessor - popularism - taking decisions in order to please rather than because they are right or appropriate. It is interesting to look at some examples of this problem. It is now many years since the law virtually abolished the death penalty in the UK. However, we are always being told that the majority of the population would prefer to have it restored. I don't know how real that majority is - only a referendum could show that - but the House of Commons has steadfastly refused to accede to its demands. Personally, I think that is right. It is right, in so far as we elect our MPs to represent us, not to be delegates, but to get to know about relevant issues in ways we cannot always do and to act for us based on their understanding of who their constituents are and in conscience. If they did that then their decision not to revisit the death penalty is right. If enough people are sufficiently exercised about this as to make their next choice of MP different then a different consensus could emerge in the House. In the meantime, we trust our MPs to do what is 'right'.
+
+What about the ban on fox-hunting? Personally I am not interested in it in itself and I am totally unconvinced by the arguments of those who are for it. Equally I am totally unconvinced by the arguments of those who passionately oppose it. I think I would have to do quite a lot of research and talking to come to a firm conclusion either way. In the meantime, I trust my MPs to get it right. Although I have to say that in this case I feel uneasy, because the decision seems to have been largely emotional and dogmatic, rather than considered and logical.
+
+So, is Gordon going to increase Pension Benefits because he thinks it the right thing to do or because there is a growing powerful lobby for it? Is he going to go into the Euro because it is the right thing to do ( which obviously begs the obvious question) or is he going to pander to the clear popularity of the anti movement? Is he going to remember and prosecute further the initiatives that he was responsible for towards liberating Africa from poverty or is he going to concentrate on bailing out failing NHS Trusts and try to win the next election?
+
+If Mr Brown still seems pretty boring in 3 years time and (apart from not being able to resist playing games with us all with his number juggling) is still playing it straight with his socialist principles, moderated by a proper sense of pragmatic judgement, then I think I could be voting for him. If his smile has become too embarrassingly broad and his policies too populist, then I shall be delighted that he does not have the tenure of the Anglican Vicar and that we can quietly vote him out of office.
+
+Keith MacLeod
+
+Licensed Lay Minister
+
+Keith McLeod

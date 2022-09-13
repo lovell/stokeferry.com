@@ -1,0 +1,34 @@
+---
+title: "Letter from Cyprus"
+date: "2007-04-01"
+categories: 
+  - "village-pump"
+---
+
+Tome paints a picture of that lovliest of islands where you can snow ski in the morning and sunbathe in the afternoon.
+
+Dear All,
+
+Winter arrived late this year, with the first falls of snow holding on until February and, as happens every year, with the first signs of snow the Cypriots pile into their cars and tear off up the Troodos road to play. Many of them travel up there only to heap snow onto the bonnet or roof of their cars, and then they rush back down and the mountain and drive around to let people see that they've been up in the snow. We witnessed this annual ritual a few weeks ago when we took Hugo up there to experience snow for the first time.
+
+Getting dressed in our warmest clothes we decided to travel in our twin cab as it has 4-wheel drive and the wisdom of this choice became apparent almost as soon as we reached Platres, a village some 10 kilometers from the top of the mountain. Two macho local drivers had apparently ignored the notices posted at the side of the road warning of the need for chains or 4-wheel drive and were dejectedly awaiting a breakdown vehicle to pull their cars out of the roadside ditch. This is a common occurrence over here in winter. The Cypriot drivers seem to be unaware that road conditions change when snow or frost arrives and the breakdown businesses just love it when snow is forecast. Of course some accidents may be attributable to drivers on the way up the mountain having to swerve to avoid mini snowmen sliding off the roofs of cars on the way down.
+
+There had been a heavy snowfall the previous night and the snow ploughs had compacted much of it on the road making driving fairly hazardous even for those vehicles designed for such conditions. However, we started up quite early in the morning and the surface of the road wasn't as icy and dangerous as it became later in the day.
+
+Hugo loved the experience and all but disappeared into the soft drifts of virgin snow, but after an hour or so we no longer had the place to ourselves as more people arrived to walk or play in the snow. By now Vicky and I were almost frozen; it was so cold that when I looked at my watch the hands were rubbing themselves together to keep warm. Besides, Hugo had slowed down to gallop and we decided to head back home. This time we got no more than a couple of hundred yards before we came across a car abandoned in the snow and we spotted another 2 similar situations before we reached the dry roads and warm sunshine further down the mountain. It's always a pleasant surprise for visitors to Cyprus in the winter to find that they can go skiing in Troodos and then drive down to the coast area to sunbathe on the same day.
+
+We returned to the UK for a couple of weeks in February to help a relative redecorate his house and were instantly reminded of one of the reasons we decided to retire in Cyprus. The weather was foul; it rained almost every day. We left our accommodation around 8 o'clock every morning and returned at about 6 in the evening. We travelled in the dark all the time and it rained every morning except one, when it was so foggy we could hardly see to drive. I think windscreen wipers and lights were designed for cars just so people could drive in Cornwall.
+
+Another reason for our being happy that we settled out here is the lack of consideration and service from local councils and services in the UK. Our relative had arranged with the council to have all the household waste, carpets, cupboards, tiles, etc. collected on a specific day and was informed that all such waste should be dry, bagged where possible and no nails or sharp edges were to be exposed. Furthermore, he had to ensure that the waste was to be clean and placed at a suitably convenient place for their waste disposal operatives (?) to collect. He was also informed that any breach of these rules might result in his being fined or brought before the court. Suitably cowed, we complied with the instructions to the letter and put a small mountain of waste out, under shelter from the rain, the night before the Waste Disposal Operatives were due to collect it. They never came. We called and called, but could only grind our teeth as we were shuttled from one automated answering machine to another and never once spoke to a human being. Visiting the council brought no success either. The girl at the council reception desk could only advise us to use a phone in a corner of the room to call the same numbers as we had been ringing all the previous day. She explained that she didn't know any of the people who were involved in the waste collection department and, much as she would have liked to, was unable to help us. We returned home 3 days later and not only had the waste not been collected, but no apology, explanation or acknowledgement had been received from the invisible and impossible-to-contact council.
+
+Back home again, we get our rubbish collected twice every week, the sun is shining, almond blossom is everywhere and most of the fruit trees on the island are beginning to bud. We've had quite a lot of rain here too, which has encouraged the growth of vegetation and the hills and valleys are dressed in their springtime shades of green. We seem almost to have missed winter in Cyprus this year.
+
+On another theme; I was recently given a small booklet containing many interesting articles, one of which included a diagram showing the positions of the various stars. So, when walking with Hugo last night, I looked at the sky and tried to find the pole star by referring to the star group that is known as the Big Dipper or the Plough. Then I thought of ancient peoples who used this method of finding North and wondered, if the now generally accepted theory of the Big Bang was the birth of our universe, why have all the stars and galaxies that are still hurtling through space not altered significantly their positions and distances relative to earth over the years. After all, if there was a huge explosion and all the bits that make up the universe were hurled into space, they wouldn't all travel at the same speed or in the same direction at the same time, would they? I must have missed something somewhere, but I would appreciate any light that anyone can shed on my hypothesis. I much prefer the simple ones such as why many Cypriot tavernas hang plastic bags full of water from the ceilings. When I asked one owner why he did this, he said that it is a fly deterrent; flies entering the area see a huge, bloated version of themselves reflected in the bag's surface and clear off! I've no idea whether this is the reason, but it certainly works. There are very few flies in these tavernas.
+
+Look after each other and enjoy your lives.
+
+Cheers!
+
+Tom & Vicky
+
+Tom Scott

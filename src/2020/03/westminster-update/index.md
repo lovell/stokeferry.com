@@ -1,0 +1,14 @@
+---
+title: "Westminster Update"
+date: "2020-03-26"
+categories: 
+  - "village-pump"
+---
+
+Rt. Hon Liz Truss MP South West Norfolk News Report - February 2020 Westminster Update Contact Liz 01842 766155 0207 219 7151 Elizabeth Truss MP House of Commons London SW1
+
+Conservative Norfolk MPs are working together to push for improvements across the county. ‘We speak with one voice when we say that Norfolk must not get left behind. The Norfolk Eight will keep pushing the case for Norfolk and for our whole region. Improving the Ely North rail junction, delivering Norwich in 90, dualling the A47 and providing decent digital infrastructure – both broadband and mobile – are key to Norfolk levelling up with the rest of the country. The Chancellor acknowledged it is very important for Norfolk to have better infrastructure and agreed to look at the projects ahead of the budget.’ We lobbied Sajid Javid ahead of the March Budget and sent submissions into the Treasury for consideration. We will continue to make the case for Norfolk.
+
+Local MP’s pressure Chancellor for A47, Norwich in 90 and Ely Junction budget pledges. Meetings and Events Countryside Alliance Awards 2020 Thrilled to see that three businesses from South West Norfolk have been nominated for the Countryside Alliance Awards 2020. Winners announced in the summer. Best of luck to The Fox Inn Garboldisham, The Little White Lamb Co. and JW Sargeant Butchers British Sugar in Parliament It was great to meet constituents Naomi, Adam and Jack at the Sugar Industry Programme in Parliament in January. Business Equipmake Massive pleasure to open the new @Equipmake factory in Snetterton, Norfolk, that will manufacture and export world leading electric buses and have the opportunity to drive one! Education Runcton Holme and Wormegay Primary Schools - talking about reducing food waste and eating local produce. Very impressed by number of children able to make their own meals. Great to see you!
+
+Downham Market Academy Good to catch up with the team at DMA. Farming Environment Secretary George Eustice confirmed the expansion of the Seasonal Workers Pilot to allow farmers to hire up to 10,000 workers in 2020.This is excellent news and something I have been lobbying extensively on. I have met farmers from across the constituency who rely heavily on migrant workers to harvest their crops - the expansion of the scheme will provide certainty for farmers. In an age of mechanisation, there is still the need for human touch, like in apple picking. Earlier in the Autumn I joined a local Fenland fruit grower to see first hand the delicate nature of the crop, so this week's announcement is extremely positive. Global Traders- Fotolec Technologies Ltd Visited fantastic Fotolec Tech in Thetford - expanding to export more innovative, low-energy lighting to the US, South Korea and Germany.

@@ -1,0 +1,44 @@
+---
+title: "The Denver & Stoke Ferry Railway"
+date: "2003-08-01"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+  - "wereham"
+  - "west-dereham"
+  - "wretton"
+---
+
+A nostalgic look at the history of local rail servcies
+
+The Denver and Stoke Ferry Railway (D&SFR)
+
+Older inhabitants of the area will remember the railway well, although they probably would not recognise it by that name. They will recall the occasional whistle and puffing of the steam locos as they trundled their load from Stoke Ferry to Downham. Newcomers like myself can see plenty of evidence of the existence of the former railway; the distinctive architecture of the railway buildings, including the station at Stoke Ferry, now part of Geoff Allen's timber yard, the crossing keepers cottages along School Lane, Limehouse Drove and Wretton Fen Road, and the remaining evidence of Abbey station at West Dereham, along with the obvious remains in places of the ridge along which the track was laid.
+
+King's Lynn, as the effective capital of West Norfolk, was a reasonably prosperous town and port in the late 18th/early 19th century. Control of the town rested with a few individuals, however, who became complacent and tended to neglect the harbour. It is difficult to imagine life in those times when the only means of transport were horses and horse drawn vehicles, or boats either sailing or horse drawn. All of these were extremely slow and a journey from Stoke Ferry to King's Lynn was a major undertaking. Things all began to change, however, with the coming of the railways. The Eastern Counties Railway were first to bring the railway to Norfolk. To the disgust of the business men in Lynn the ECR intended to run their main line to the busy port of Wisbech and only proposed a branch line to Lynn. The Lynn business men reacted by sponsoring their own railway, the East Anglian Railway, initially to run to Ely. The Lynn to Downham section opened in 1846, extending to Denver and then Ely during 1847, later expanding to E Dereham and Huntingdon. Eastern Counties Railway took over the East Anglian Railway and subsequently linked with the Eastern Union Railway to form the Great Eastern Railway in 1862.
+
+There were a number of early proposals to run a line eastwards from Downham but all failed, until eventually a group of landowners managed to arrange the finance for a Denver to Stoke Ferry branch line. The arrangement was that they should build the line and GER would work and run it for 50% of gross receipts. The Act of Parliament authorising the line was passed in 1879 and the Denver and Stoke Ferry Railway commenced operating on August 1st 1882. An extension of the line to Gooderstone was approved in 1883, and it was with this in mind that Stoke Ferry was built as a through station, but this extension was later abandoned and the further Act allowing the abandonment was passed in July 1887. This abandonment was partly due to the problem of bridging the road and river at Stoke Ferry when it was realised that the station was sited too close to the road.
+
+Stations at Stoke Ferry, West Dereham (Abbey) and Ryston were authorised along with seven level crossings along the line. Each crossing had to be gated with a gate keeper's lodge. In the vicinity of Stoke Ferry there were the crossings at Stoke Drove (now School Lane), Limehouse Drove and Wretton Fen Road. In those days, of course, long before the cut-off channel, each of these was more of a through route.
+
+Travelling by train to King's Lynn from Stoke Ferry, via Denver, took a quarter of the time that it took by road and connections were available to travel to London by train. The time from Liverpool Street to Downham was just 2h 47min with good connections available to Stoke Ferry, which took a further 17min, including stops at Ryston and Abbey stations. The trains were busy on King's Lynn and Downham market days. GER also ran excursions from Stoke Ferry to Hunstanton, Yarmouth and Lowestoft. Fares for these excursions were the equivalent of 20p, which was almost half a farm labourers weekly wage. Times from Stoke Ferry to Lynn, Hunstanton and Cambridge were 50mins, 2h and 1h 40mins respectively.
+
+Edward VII, as Prince of Wales, travelled by train to Stoke Ferry on three occasions, when visiting Oxburgh Hall. On two of those occasions the full Royal Train conveyed him from St Pancras. I imagine those were red letter days in Stoke. On the other occasion he travelled from Wolferton on a GER train.
+
+The line was not very profitable, passenger traffic was light, and goods transport was hampered by the lack of a weighbridge, a problem that was overcome in 1889 when a disused weighbridge was obtained from Lowestoft and sited at Downham. The small amount of passenger traffic led to the closure of the ticket offices at Stoke Ferry, Abbey and Ryston in 1895, thereafter ticket sales were through a conductor on the train, although a parcels office and clerk were introduced at Stoke Ferry in 1896.
+
+Arthur James Keeble of the Wissington estate had established a number of smallholdings on the land between Wereham and Southery and he proposed a light railway to link with the Stoke Ferry branch line at Abbey. Although described as a light railway it was built to the standard gauge but the track was laid on largely unprepared ground. This line opened in 1905 going from Abbey to Poppylot (on the Southery to Feltwell road), it had six sidings serving the smallholdings and crossed the Wissey on a 70ft span bridge. Passenger cars ran on this line on Lynn and Downham market days. The whole system proved very valuable during World War I when there was a big increase in home produced food, but in 1917 serious flooding washed away part of the light railway and the line was abandoned for a while.
+
+In 1923 GER was merged into the London North Eastern Railway, LNER. The light railway was subsequently restored with the help of LNER and the system extended with branches to Feltwell, Methwold Hythe and Southery. It was at about this time, however, that regular bus services began to appear. Darkins ran a service between Downham and Brandon via Stoke Ferry and Ward Bros ran services to Downham, King's Lynn, Norwich and Wisbech ( the bus garage in Stoke Ferry later became the village hall). These services were absorbed into Eastern Counties in 1931. With the exception of Stoke Ferry, the stations on the line were situated inconveniently in relation to the village and then, as now, trains could not compete with the buses on price or convenience.
+
+In 1925 the sugar factory opened and farms in the area switched to sugar beet. Sugar beet began to arrive from all over the area and the light railway and the branch line to Abbey became very busy. Trains of up to 100 wagons were using the line as often as three times a day, the marshalling and parking of these trains led to additional sidings at Downham and at Abbey. The light railway was owned initially by the Wissington Estate, it was leased to British Sugar and subsequently bought by them. BSC later closed the line south of the factory.
+
+In 1931 LNER obtained permission to reclassify the entire branch line as a light railway. This removed the requirement for manned crossings, cattle grids were introduced in their place, there were warning signs also, trains were restricted to daylight use and subjected to a speed limit of 10mph within 200yds of the crossings.
+
+During the second war, in their drive to increase farm production, the Ministry of Agriculture reclaimed 10,000 acres of derelict fenland and, in conjunction with LNER, improved the condition of the railways and roads in the area. In 1941, they reopened the light railway south of the factory. The increase in farm production put further demands on the line. After the war there were operational problems due to a shortage of serviceable locos and rolling stock. The railways were nationalised in 1948. In 1957 the lines to the south of the factory were closed for a second time. The growing impact of road transport resulted in freight services from Denver and Ryston being discontinued in 1964 and from Stoke Ferry in 1965, when the section of line from Stoke Ferry to Abbey was closed. The track was removed soon afterwards. The line from Denver to Abbey was relaid in 1971 to take the heavier traffic and the stretch from Abbey to Wissington was also strengthened. In 1979 The new Downham Market by-pass crossed the line and a modern level crossing was installed.
+
+By 1981, however, road traffic to the factory was taking the major part of the load and the line was effectively closed. The station buildings at Abbey and Ryston became dilapidated and, since they were not seen as suitable for restoring for living accommodation, they were demolished. As stated above, the station buildings at Stoke Ferry were acquired by Geoff Allen.
+
+Ron Watts
+
+(Source: "The Stoke Ferry Branch" by P Paye)

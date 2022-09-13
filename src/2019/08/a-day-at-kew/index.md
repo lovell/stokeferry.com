@@ -1,0 +1,10 @@
+---
+title: "A Day at Kew"
+date: "2019-08-26"
+categories: 
+  - "village-pump"
+---
+
+I have just returned, with my daughter, to her house in Kent from a day out at Kew Gardens. It was a Christmas present from my Grandson Nicky to the both of us and included a cream tea. Although recent weather has been pretty awful - rain, hail and even a spot of snow, today was sunny all day and we even got a bit of a tan. I hadn't been to Kew since I was a child but memories came flooding back when we entered the Palm House and were faced with massive palms & banana trees. We walked around the grounds and into each special conservatory including The Water Lily House where I remember there were giant water lilies that a child could sit on. Oh what a disappointment when they were not there. We searched to no avail and eventually asked a lovely young women watering the plants if there were any. She pointed and said if we looked in the next pool some new baby ones were growing, Victoria amazonica. What a relief! After taking numerous photos and enjoying our cream tea we headed for the plant shop to stock up for our own gardens. Once home I decided to have a long hot soak in the bath as the long day had taken it's toll. All I needed was spread out for me in the bathroom and I luxuriated (wallowed) for some time before using the moisturizer thoughtfully placed on the side table: I rubbed it all over my body snuggled into my dressing gown and headed into the lounge for a gin and tonic. 'I liked that moisturizer you left out for me', I said. My daughter looked at me with a puzzled look on her face. She went into the bathroom and came back with it. 'Do you mean this' she said. I nodded. 'You rubbed this all over yourself?' Again I nodded, wondering why she was laughing.' That Mother was left out with the shampoo - it's hair conditioner!' I now have the silkiest arm and leg hairs in the UK. As we collapsed onto the sofa, gin in hand, we reflected on our perfect day and how so very lucky we were to have this special time together, to marvel at God's creativity and to contemplate a mothers crazy antics.
+
+Carol Nicholas-Letch

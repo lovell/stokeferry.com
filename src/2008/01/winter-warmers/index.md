@@ -1,0 +1,22 @@
+---
+title: "Winter Warmers"
+date: "2008-01-01"
+categories: 
+  - "village-pump"
+---
+
+Giles takes a leisurely stroll through the world of wine with advice for Pump readers on the good buys.
+
+Well the trees at the tip, the New Year hangover has finally subsided and the 'Yo Ho Hos' that were such a constant refrain only a few days ago have now (mercifully!) fallen silent. Yes the New Year is with us, but rather than see the coming long dark evenings as a source of gloom, think of all the magnificent wines you can indulge yourself with. After all it's important to keep warm...! So here, in no particular order, is a collection of wines that will banish the winter blues.
+
+Albarino Cordax 2005 (£8.49) I'm prepared to lay money that most of you would never have heard of this of tasted it. Well it's not surprising, until a few years back when it was suddenly heralded as 'Spain's answer to Riesling' (woo hoo!) the only people who had heard of it was the good people of Rias Baixas in western Spain who made it and posh seafood restaurant owners in Barcelona who were its only buyers. To me it's neither as refined nor complex as Riesling, but then it's nothing like as fussy about when or with what you drink it with. Good Albarino should be fresh, citrusy and tangy with touches of minerals to the finish. Think of it as Sauvignon Blanc without the tedium!
+
+Next up is a really massive white, the Vignes de Nicole Chardonnay Viognier 2006 (£5.99). This is a wine you wouldn't have seen twenty years ago. Partly as only a lunatic would have mixed high-priced Chardonnay grapes with anything else, and partly as no one outside the trade had a clue what Viognier was and you wouldn't have been able to shift. How things have changed! Now the world and his wife have cottoned on to Viognier and it's starting to fetch some remarkably high prices. This wine demonstrates perfectly why the two should mix, particularly when grown in hot climes such the South of France. In the heat you see grapes tend to lose acidity and can taste oily and flat. Viognier though thrives on heat and manages to retain its apply freshness, whilst its peach and apricot tones marry well with the ripe tropical fruit of the Chardonnay. Genius!
+
+Onto the reds and Chateau Greysac 2004 (£9.99). In these days of Claret price silliness its fantastic to find a really good quality wine that costs less than a villa in the Algarve, and this is just such a wine. Greysac is ancient property that has been classified as a 'Cru Bourgeois' (which basically means its a cut above your normal AC wines, yet not as posh or poncy as a 'Grand Cru'). 2004 was a fine vintage and left both the Cabernet and Merlot grapes ripe, so giving wines that are somewhat weightier than is classical, but which are full of blackcurrant, black cherry and raspberry fruit and which will, even at this end of the spectrum, improve over the next ten years. Superb with the Sunday roast, it's also excellent with hard cheeses and even roasted vegetables. Plan Pegau NV - Domaine Pegau (£7.49) is a bit of a find! It's made at Domaine Pegau, one of the finest estates in Chateauneuf du Pape (and a snip at £25 a bottle). This is made from the same base of Grenache, Syrah and Carignan (and the other ten grape varieties that are allowed for Chateauneuf) as used for the grand vin, but comes from younger vines and those lying outside the famous region. It's also made up from a number of different years, hence there's no vintage statement on the label. Try this with cherry and blackcurrant soaked softy with good company and the richest of stews and casseroles.
+
+And finally we have the Quinta da Roeda 1995 (£15.99) A Port by Croft, this is ideal if you want some of the complexity of a full vintage Port - but don't want to wait until your grandchildren are drawing their pensions to drink it or want to spend upwards of a £100 a bottle. What we have here is a single Quinta Port. These are the produce of a single year, as with vintage ports, but unlike vintage wines they are made from grapes that come from a single estate. Single Quinta wines are usually released in years that aren't quite good enough to be declared as vintage years and are designed to drink younger - the average needing about ten years after release as opposed to a vintage wine's twenty-fifty years.
+
+Well that's it for now, but next month it being St. Valentine's Day I'll have a bunch of roses for you. This month's selection are all available from Majestic (www.majestic.co.uk) who'll deliver for free!
+
+Giles Luckett

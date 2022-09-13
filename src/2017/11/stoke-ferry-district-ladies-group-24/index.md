@@ -1,0 +1,10 @@
+---
+title: "STOKE FERRY & DISTRICT LADIES GROUP"
+date: "2017-11-03"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+  - "villages"
+---
+
+Minutes of the meeting held on Sept 6th. Mrs Armsby welcomed 14 members & 1 visitor, Joy Beckett. APOLOGIES were received from Mavis Smith, Gypsie Duncan, Jenny Elsey, Rosemary White, Alice Ball, Anita Horgen, Audrey Hudson & Valerie Kirchen. Minutes of the last meeting were read & signed. ARISING Mrs Armsby apologised that there would be no talk on Bee-keeping tonight, as Mr Lucas had not written down the date, & was unable to come. She also thanked Gillian Smith for organising the August outing which everyone had enjoyed. Mrs Horgen had given this month’s birthday cards to Mrs Hearne, who presented them to Wendy Quadling and Janet Cooper. Oct meeting. Arrangements for the harvest supper were discussed, and members agreed to have a Ploughman’s, followed by apple pies & cream. Due to the low attendance, it was decided that the club would purchase everything required for the ploughman’s, and members would pay a small charge on the night to cover costs. Gillian Smith, Sheila Smith & Claire Lankfer will meet in Downham Market on the morning of Oct 4th to buy the food. Janet Cooper, Heather Durrance & Carol Thulbourne offered to make apple pies, & Janet Burns will bring some of her green tomato chutney. Mrs Armsby asked if members could bring some extra raffle prizes, and reminded everyone to bring their own crockery , cutlery & a drink if needed. Door & raffle will be Janet Cooper & Janet Burns. DECEMBER MEETING---- With very little discussion, members agreed to have an evening meal at the Foldgate, as several people had heard good reports about it. Gillian Smith said that the extension will be finished in time for the Christmas trade, & offered to bring a menu when available. There will be no raffle that evening. Tonight’s raffle prizes were won by Claire Lankfer, Hazel Hearne & Heather Durrance. The meeting ended at 9pm. Claire Lankfer ( secretary )

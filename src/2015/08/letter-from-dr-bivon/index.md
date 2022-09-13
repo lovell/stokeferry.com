@@ -1,0 +1,18 @@
+---
+title: "Letter from Dr Bivon"
+date: "2015-08-19"
+categories: 
+  - "village-pump"
+---
+
+I am writing in response to Tom Ryves letter to the Pump. Stoke Ferry has a parish council, a playing fields trust and a village hall. Both of the latter are charities, registered with the Charities Commission and are not the legal responsibility of the Parish Council. The Parish Council looks after the cemetery.
+
+The Playing Fields trust, of which I am a trustee, has over the last two years received grants to replace the children’s play equipment and makes sure that the equipment is properly maintained, insured and inspected in accordance with health and safety regulations. We have asked for financial help from the Parish Council. The Council has given help with insurance. However, this has been done with great reluctance and it clear that many members of the council are unwilling to continue doing this. We would also like the Parish Council to help with any planning applications to the Borough Council. With their support we are more likely to achieve our goals and I am told that the costs of an application from the Parish Council are less than from another organisation.
+
+The Village Hall is run by a small committee and arranges a number of events for the benefit of the village. However, the building itself is in my (and many other people’s) opinion not welcoming and cannot be revamped. Furthermore, there is no proper car parking and no space for a car park. I have recently been at events in Oxborough and Methwold and their village halls are vastly superior. When the houses were built in Furlong Road, we were promised a new village hall. The developers managed to avoid building it. At the time I offered to help with approaching the Borough Council to ask for assistance with raising funds to build a new village hall. This offer was rejected.
+
+The Cemetery is maintained by the Parish Council and a large part of our precept, that we the parishioners are required to pay, goes on maintaining the cemetery. Could not some of the maintenance be done by volunteers? I am not sure how many people in the village are buried each year, but I suspect it is very few. Could the parish clerk please provide the Pump with the figures?
+
+The other major cost of running the Council is the salary of the parish clerk. We need a fully trained parish clerk and he or she needs to be paid. However, if the clerk lives in the village, why shouldn’t the clerk give part of her time free of charge?
+
+I believe that it should be the duty of the Parish Council to support both the Playing Fields and the Village Hall. I propose the following: 1) The Parish Council form a liaison committee with the Playing Fields Trust to discuss what contribution that the Parish Council can make to the running and development of an important facility for this village. I suggest that this is done each year before the budget is set. I would like to see the Parish Council allot the same amount for the playing fields as they do for the cemetery. 2) The Parish Council discuss with the Village Hall committee the need to build a new hall and actively seek grants for this. Why should Stoke Ferry have a worse village hall than surrounding villages of a similar size? One possible site for this would be at one end of the playing fields, but I am sure that is not the only option. 3) Both the Village Hall and the Playing Fields Trust have raised money by fund-raising activities. I suggest that the Parish Council follow their example and organise events, such as a village fete, to raise money for the cemetery. This would also have the effect of bringing together the village. Other villages do it, why can’t Stoke Ferry! Roy Bivon e-mail: roy@bivon.co.uk

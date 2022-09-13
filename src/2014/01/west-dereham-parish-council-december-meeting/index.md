@@ -1,0 +1,179 @@
+---
+title: "West Dereham Parish Council December Meeting"
+date: "2014-01-20"
+categories: 
+  - "parish-councils"
+  - "village-pump"
+  - "villages"
+  - "west-dereham"
+---
+
+**DRAFT MINUTES OF** **WEST DEREHAM** **PARISH COUNCIL MEETING**
+
+**HELD AT WEST DEREHAM VILLAGE** **HALL** **at** **7.30 pm**
+
+**THURSDAY 5 DECEMBER 2013**
+
+**PRESENT (7 Councillors)**:- Pam Bullas (PB), Claire Cann (CC) – Chairman, Tom Foy (TF), Lorraine Hunt (LH), Paula Kellingray (PK), Claire Page (CP), Pam Walker (PW)
+
+Recorder: Nick Cann (NC) (present to record the meeting and to assist PK with IT finance)
+
+6 members of the public were in attendance
+
+ 
+
+_Papers presented to Councillors:  (i) Statistics relating to breakdown of WD Council Tax; (ii) Breakdown of proposed WD 2013-14 Precept bid; (iii) Financial Management Report (spread sheet and notes to the accounts); (iv)  expenditure (for approval); (v) Glazewing Report_
+
+The Chairman welcomed everyone present and opened the meeting.
+
+ 
+
+1. **Apologies for Absence.**  There were no apologies for absence.
+
+ 
+
+1. **Declarations of Interest.** There were no declarations of interest from Councillors relating to any item on the agenda.
+
+ 
+
+1. **Minutes of the Parish Council Meeting held** **7 November 2013****.** The Chairman confirmed all Councillors had seen the minutes of the last Parish Council (PC) meeting held 7 November 2013. These were agreed as a true record and signed by the Chairman.
+
+ 
+
+4.            **Reports.**
+
+4.1          **Chairman’s Report**.  In the absence of a Clerk the Chairman combined her report with the Clerk’s report at item 4.2 on the agenda.
+
+4.1.1      Willow Lane Footpath. The Chairman said she had e-mailed all Councillors concerning this matter. Norfolk County Council (NCC) had written expressing a desire to finalise discussions within the next 8 weeks. She said if the 8-week deadline represented a legal time limit then the PC would, of course, abide by it as soon as the County Council identified for them the explicit legislative reference. If there was no statutory time limit, however, the PC was unwilling to be pressurised, as had already been made clear to the County Council. The Chairman had received a telephone call from the neighbouring landowner who had been away on holiday. He had agreed to let the PC have a copy of his own maps of the footpaths in the Parish of West Dereham over his land and would be happy to meet with the PC and other interested parties to try to identify a mutually acceptable way forward which could be passed to the County Council.
+
+4.1.2      Grange Farm. The Chairman said she had received numerous complaints and comments from villagers concerning the activity of the new tenants of Grange Farm, authorised by Norfolk Property Services (NPS) to use the copse on the right hand side of Lime Kiln Road (leaving the village - the area of the old Lime Kiln pit), to dump accumulated farm waste. Hedges had been destroyed and the wildlife, flora and fauna adversely affected.  CC and PW had both spoken separately with the farmer concerned on the first day of operations. The PC had requested from NPS copies of safety certificates and other authorisations for this dumping. NPS had said a meeting would be arranged between their representative (NPS), Parish Councillors and representatives from the Heritage Group. The Chairman said this would be a ‘round-table’ meeting and not a public gathering. She would contact NPS in an endeavour to arrange the meeting before Christmas.
+
+4.1.3      Councillor Training. New dates for induction training for TF and LH had now been arranged.
+
+4.2          **Clerk’s Report**. The Parish Clerk’s report was included at Item 4.1.
+
+ 
+
+4.3          **Village Handyman**. The Village Handyman’s contract had now been approved. It was hoped this would be signed later in the evening should the newly appointed Handyman return in time from a business commitment outside the village.
+
+ 
+
+4.4          **Police report.**PCSO Jane Edwards had apologised for her non-attendance at the meeting and PK reported on her behalf.  There had been one attempted break-in to a garage in West Dereham. Two hooded criminals armed with crowbars had been disturbed by the owners and had fled empty-handed. The Police were called and had arrived on the scene within a few minutes. PK said it was now the “rave season” and “Christmas party time” and Police were regularly touring the area. She advised of car number plates being stolen locally and a theft had occurred from vehicles parked in the Stoke Ferry Village Hall car park.
+
+ 
+
+4.5          **Village Hall Report**. PK reported that the Ante-Natal Group had settled into its regular booking of the Village Hall. A number of events were occurring during December and these were published on the Village notice boards and in the household leaflet drop.
+
+ 
+
+4.6          **Broadband Report.** The Chairman said West Dereham was still working to Karen O’Kane’s (KoK)
+
+ (NCC/ BT), latest communication which had advised that the village would receive two Broadband cabinets. Work was due to start 1 April 2014 and completion anticipated in June 2014. PW said she had contacted KoK by e-mail concerning BT Infinity but had not yet received a response.
+
+(After note: PW received a reply from KoK on 6 December relating to ‘Better Broadband for Norfolk’ (BBfN). The e-mail explained the process of ‘Fibre to the Cabinet’ technology (FTTC) which involved a mixture of fibre optic and copper cabling, being the most cost-effective solution for deploying Broadband services throughout the County. BT must first lay fibre spines to which the new Broadband cabinets would then be connected. Homes were cabled by BT into existing ‘green boxes’ and these green boxes must then be fibre-linked to the new Broadband cabinets.  West Dereham’s work would be implemented in phase 3 of an 8-phase operation. KoK advised that BT Infinity was only available to properties which already had computer speeds of 15 Mb per second and such speeds were unavailable currently in West Dereham.)
+
+ 
+
+4.7          **Glazewing report**. Glazewing had issued their December report by e-mail covering the period from 31 October to date. There had been no reported incidents or complaints. No planning applications had been submitted during this period.
+
+ 
+
+4.8          **Pathways to History.** PB reported on the meeting she had attended at the Thomas Paine Study Centre, University of East Anglia (UEA) on Saturday 23 November relating to ‘Pathways to History’, the historical pathways project being run by UEA, and public rights of way. UEA’s efforts had been concentrated on and around large estates and sites of archaeological and historical interest. Funding would run out in February 2014. PW showed Councillors how an I-pad could be used to trace footpaths in and around the village.
+
+ 
+
+5.            **Finance.**
+
+5.1          Accounts.  Accounts for approval were submitted by PK and NC. NC provided Councillors with the monthly financial management report as at 30 November, month 7.  He reported that cash flow was operating well and the Council was solvent. The last VAT claim made to HMRC had been dated 31 July. A claim for August – November of £207.59 awaited submission. Invoices for approval were:
+
+ 
+
+<table width="506" border="0" cellspacing="0" cellpadding="0"><tbody><tr><td valign="bottom" nowrap="nowrap" width="220"><b>Payee</b></td><td valign="bottom" nowrap="nowrap" width="62"><b>Net</b></td><td valign="bottom" nowrap="nowrap" width="55"><b>VAT</b></td><td valign="bottom" width="58"><b>&nbsp;</b><div></div><b>&nbsp;</b><b>IRS</b><b> (</b><b>PO</b><b>)</b></td><td valign="bottom" width="49"><b>NICs</b></td><td valign="bottom" nowrap="nowrap" width="62"><b>Gross</b></td></tr><tr><td valign="bottom" nowrap="nowrap" width="220">CGM (grass cutting Nov)</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">89.92</p></td><td valign="bottom" nowrap="nowrap" width="55">&nbsp;17.98</td><td valign="bottom" nowrap="nowrap" width="58">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="49">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">107.90</p></td></tr><tr><td valign="bottom" nowrap="nowrap" width="220">CGM (VH grass cutting Nov )</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">18.50</p></td><td valign="bottom" nowrap="nowrap" width="55">&nbsp;&nbsp;&nbsp; 3.70</td><td valign="bottom" nowrap="nowrap" width="58">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="49">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">22.20</p></td></tr><tr><td valign="bottom" width="220">Mazars Accountants (audit)</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">100.00</p></td><td valign="bottom" nowrap="nowrap" width="55"><p align="center">20.00</p></td><td valign="bottom" nowrap="nowrap" width="58">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="49">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">120.00</p></td></tr><tr><td valign="bottom" width="220">Purchase postage stamps</td><td valign="bottom" nowrap="nowrap" width="62">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 7.20</td><td valign="bottom" nowrap="nowrap" width="55"><p align="right">&nbsp;</p></td><td valign="bottom" nowrap="nowrap" width="58">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="49">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">7.20</p></td></tr><tr><td valign="bottom" width="220">WD Parish mag (PC inserts)</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">25.00</p></td><td valign="bottom" nowrap="nowrap" width="55"><p align="right">&nbsp;</p></td><td valign="bottom" nowrap="nowrap" width="58">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="49">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">25.00</p></td></tr><tr><td valign="bottom" width="220">Total</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">240.62</p></td><td valign="bottom" nowrap="nowrap" width="55"><p align="right">41.68</p></td><td valign="bottom" nowrap="nowrap" width="58">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="49">&nbsp;</td><td valign="bottom" nowrap="nowrap" width="62"><p align="right">282.30</p></td></tr></tbody></table>
+
+ 
+
+All the above payments were considered and approved. NC advised that the Administration cost centre budget of £300 was overspent and year-to-date expenditure was £592. This was due to a payment of £360 relating to the professional consultancy (legal fees) required when reviewing the Farm Business Tenancy. Without this payment, 78% of the allocated budget would have been spent. He advised of the essential nature of having contingency funding for “Professional Services” when preparing the Precept for 2014-15.  Using an Excel spread sheet, NC pointed out the Council had been forced to set a deficit budget of (£3,273) at the start of this year. The deficit had been manageable due to the small accumulated reserve fund. Currently the end-of-year forecast was for a reduced deficit of (£1,298), i.e. an in-year saving of £1,975.  This position was helped by the non payment of salaries for the Parish Clerk and Handyman over a number of months.
+
+ 
+
+5.2          Precept. The Chairman said it was already known what the Parish Council must have annually in its precept.  Additional items were added to improve the village and individual requests were important to those who made them, but the PC had to represent everyone and all requests. There were no additional items for inclusion in the precept from those already discussed at the October and November meetings. The Chairman said that the Precept was a very sensitive issue. Without the appropriate funding the Parish Council was powerless to carry out its statutory duties and make any improvements. She said 97% of Council Tax was used by Norfolk CC (76%) and the Borough Council on a variety of public services which she outlined and, additionally, paying for the police. But only 3% of Council Tax was used to improve the environment which was directly the concern of villagers, i.e. the village of West Dereham itself. She said currently there was no cap on the Precept but draft legislation introduced this year had been to cap Precepts at 2%. 2% of the 2013-14 Precept for West Dereham was £153. This sum would not even cover the same level of grass cutting in the Parish. To bid for a Precept greater than 2% of the existing Precept, a referendum would be required, but with only a 2% increase there would be no funds for financing a referendum. It was a ‘Catch 22’ situation.  The aim was to make our Village an attractive place in which to live and to make properties easy to sell and to do this funding was required to provide everything wanted by villagers. A professionally trained Parish Clerk was an essential requirement for a Quality Status Parish Council, receiving an appropriate salary; villagers asked for footpaths and hedges to be cut and complained of dog waste on walkways. Provision of a Village Green was a real possibility now but this would not be gifted and negotiations were continuing with a local land-owner. Consideration was being given for the provision of equipment on a Village Green for the younger generation.
+
+ 
+
+The Chairman said there were 199 households in West Dereham and 196 of these were liable for the payment of Council Tax before discounts. 146 households actually paid Council Tax after the change in the Tax Base. Discounts applied to households in West Dereham were: 47 x single person, 3 x second homes and 7 x empty homes. Averaging calculations were based on Band ‘D’ and the current Band ‘D’ Parish Council share was £47.58. The Precept requested for 2012-13 had been £7,660; Council Tax benefits had been capped and individuals no longer received financial assistance for everything they might have expected previously. The Parish Council had therefore accepted the Borough Council’s ‘one-off’ local Council Tax Support Grant and reduced its Precept bid by that amount. The Precept was reduced to £6,909 (a reduction of £751) and the grant received from the Borough Council was £590 - a shortfall of £161. The PC had reduced the Precept last year, therefore, and for the two previous years it had not been raised above the level of inflation. The Chairman then gave details of the housing bands should the Parish Council Precept be raised to £15,000. (Band ‘A’ - £68.40; Band ‘B’ - £79.80; Band ‘C’ - £91.20; Band ‘D’ - £102.60 (@ £1.97 per week); Band ‘E’ - £125.40; Band ‘F’ - £148.20; Band ‘G’ - £171.00; Band ‘H’ - £205.20)
+
+ 
+
+PK provided Councillors with a 4-page document giving details of all items included in the Precept bid for 2013-14 which was discussed item by item. The basics from 2013-14 were retained including some increases and some decreases where appropriate. New items for inclusion related to the maintenance of the Village Hall’s outside area, cemetery improvements and maintenance including new gates, gate posts and hedging, an increase to the Handyman’s hours  (as BCKLWN had reduced its services), the starting of a ‘new projects’ fund seeking to provide a new Village Green, Pear Technology set-up costs relating to the accurate mapping of the Village, a maintenance fund for the Village’s telephone boxes, provision of water at the allotments and for a second water point at the cemetery. Total expenditure was £19,133 of which the Precept requested was £14,979 plus the NCC Grant of £590 (being the ‘one-off’ payment for a second time) making a total of £15,569. Other income amounted to £3,564. PK provided a table indicating what increases to the Precept would be should a 2% capping be in place. Additional funding of only £311 would be permissible in 2015 rising to £343 by 2020. The Chairman said in 2013-14 many Parish Councils did what West Dereham Parish Council and sundry others were considering doing now for 2014-15 -  i.e. increasing Precepts to include necessary items having realised how disastrous a 2% capping decision would be. The increase being suggested this year as a percentage was substantial but, in real terms for a person paying Council Tax at Band ‘D’ (the average), this amounted to an additional payment of approximately £1 per week.
+
+ 
+
+A discussion followed. Comparisons were drawn with the Precepts of other villages in the surrounding area.  The new costs involving the cemetery and Pear Technology were explained. The transfer of responsibility was now occurring from County Council to Borough Councils to Parish Councils and the costs of maintaining local areas had risen substantially. PB said it was easy enough to reduce the Precept but if improvements were to be made then the necessary funding must be provided in order for progress to be made. CC reiterated the dangers of future capping of Precepts. PK emphasised that improvements to the allotments and cemetery and new requirements to fund elections were being budgeted for on 5-year plans. The Chairman said Parish Councillors constantly made personal contributions to alleviate expense for the Parish, for example: privately funding their own training, providing free tea, coffee and biscuits at PC meetings, planting the cemetery extension with bulbs, printing documentation, litter picking in the Village and much more. Funding was also being provided to maintain and preserve Village assets such as its Hall. The Chairman called for a vote on the Precept as presented. Councillors agreed unanimously to support this Precept while expressing their regrets at the necessity for the increase. 
+
+ 
+
+6.            **Standing Orders**. The Chairman said Standing Orders would be an item for discussion at the next meeting in February 2014. The PC had only recently reviewed its Standing Orders. Councillors would consider NALC’s recommendations in January and at the next Discussion Group.
+
+ 
+
+7.            **Cemetery Risk Assessment.** The Risk Assessment for the cemetery had been copied to all Councillors prior to the meeting. This was accepted by Councillors and would now be included with the Council’s official documents.
+
+ 
+
+8.            **Community Engagement Strategy.** The Chairman said the Community Engagement Strategy had now been reviewed and two minor changes recommended were included. It was suggested that this document should now be placed on the website along with all other policy documents.
+
+ 
+
+9.            **Code of Conduct.**  The Council’s Code of Conduct had been reviewed and was re-confirmed. At serial 2.3 of the Code the expression “on merit” and its interpretation was discussed. Another form of words was considered but, on merit, “on merit” was considered to be most appropriate wording.
+
+ 
+
+10.          **Contract for West Dereham Parish Clerk**.  The Chairman said the Parish Clerk’s contract was not for discussion now but would be discussed when all Councillors met on Saturday 7 December for the interviews to appoint a new Clerk.
+
+ 
+
+11.          **Planning Applications.** The Chairman said the only planning application in the pipe-line related to the conversion and extension of a barn to form a residential annex at College Farm, Basil Road. This had been approved by the Borough Council.
+
+ 
+
+12.          **Correspondence.**
+
+12.1        Letter from Elizabeth Truss MP. Elizabeth Truss’s letter had related to funding for community projects. LH would discover whether funds might be made available to purchase the copse from NCC on Lime Kiln Road.  Funding might also be possible to assist with the purchase of land for the Village Green. CC would approach the landowner once more. Depending on what LH discovered, PW would obtain the relevant application forms for completion and submission.
+
+12.2        Willow Farm. Willow Farm correspondence with NCC was still unresolved.
+
+ 
+
+13.          **Other Business – Any Additional Reports and Items for Inclusion on the next Agenda.**
+
+13.1        PB said policies and Standing Orders were to be discussed in February. Other items for inclusion were Complaints/ Grievance Policy, Equal Opportunities Policy and Media Relations Policy.
+
+13.2        Data Protection. PK confirmed that the £35 registration fee for data protection had been paid to the Information Commissioners Office (ICO). The application form was saved on the Parish Council’s laptop. LH agreed to take the Clerk’s laptop, locate the form, complete it and return it as an e-mail attachment to the ICO.
+
+13.3        Letter of Absence. The Chairman said TF would provide a letter of absence since he was returning to Afghanistan for another tour of duty in 2014.
+
+13.4        Allotment Inspection. The inspection of allotments by Councillors would take place on Saturday 7 December at 09.00 am.
+
+13.5        Interviews for New Parish Clerk. Interviews for the new Parish Clerk would be held in the Village Hall on Saturday 7 December.
+
+ 
+
+The official meeting concluded at 8.55 pm and was opened to the floor for general comment.
+
+ 
+
+14.          **Open Forum**.
+
+14.1        The subject of the old lime pit on Lime Kiln Road and the dumping of farm waste there from Grange Farm was discussed further. It was considered ironic that preservation of this very site had been discussed at the previous meeting. Lime Kiln Road now had the appearance of a farm track and mud from the new earth bank (bund) positioned to block the entrance to the copse where the waste had been dumped was being washed down the slope of the road by rainfall. General disapproval was expressed with the hope that the PC would take a robust view concerning this with Norfolk Property Services at the meeting still to be arranged.
+
+**Closure**. The Chairman thanked everyone for attending and final closure of the meeting was at 9.10 pm.
+
+ 
+
+ 
+
+ 
+
+ 
+
+Chairman’s signature ……………………………………             Date ……………………………

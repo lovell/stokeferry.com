@@ -1,0 +1,92 @@
+---
+title: "Making Garden Compost"
+date: "2002-06-01"
+categories: 
+  - "village-pump"
+---
+
+Making a compost heap and manure
+
+A compost heap is both a recycling facility for kitchen and garden waste, and a small processing plant for producing a first-class, medium-fertility soil improver - garden compost. No garden should be without one. Making compost is often seen as a complex art, but in fact it's not that difficult. The actual process of converting waste to compost is carried out by naturally occurring creatures, from worms to microbes.
+
+Ideally, set up your compost heap in a semi-shade area, so it won't dry out in the sun. Start to build up the heap directly on the soil to enable earthworms and other insects access. The key to making good compost is to use a mixture of types of material, such as grass mowings, which rot quickly to a smelly sludge; these are known as "greens". They need to be mixed with tougher, dry items like old bedding plants - "browns", which are slow to rot on their own. "Browns," add the necessary fibre to give the compost a good structure.
+
+Or, if you prefer, use J Arthur Bowers 'Garotta' biological compost maker. A blend of naturally occurring, high active microbes and enzymes, for use on all types of garden and kitchen waste. Harmless to children, pets and wildlife. It can break down many plants, however it is probably not wise to add plants infected with persistent diseases such as clubroot and white rot. Foliage infected with potato blight can be composted, except in countries where the tough over wintering spores can be found.
+
+Compost bins can be purchased or homemade. Choose one that suits your needs and the gardens.
+
+This compost cage is both simple and cheap to make. It is also a good way of recycling those cardboard boxes. Hammer four posts well into the ground in a square formation, and unroll chicken wire around the posts on the inner and outer sides, stapling or nailing it in place.
+
+1\. Be sure when you trim it to size to turn over any sharp edges.
+
+2\. Slide cardboard down between the two layers for insulation.
+
+3\. You can leave the front pen for easy access. Or make a hinged fourth side, like a gate, that will keep the heap neat.
+
+4\. Cover the heap with an old carpet or similar.
+
+One of the easiest wooden bins to construct, the beehive type has the advantage of looking neat in a garden setting. It can be painted and stained; some people make smart wooden lids to complete the effect. The wooden layers are built up the same way, with the battens that hold them standing proud.
+
+1\. So that each will fit securely on top of the one below. The bin can be built up at the same rate as you add the compost.
+
+2\. Up to a height of 1m (3ft) or so. As the contents decompose the compost will sink, and layers can be removed to start a new heap.
+
+3\. Turning the compost is easy with this type of bin, provided that the piece of ground next to it is left clear: simply take of the layers and restack them next to the heap, turning the compost into the "new" bin as you go.
+
+Another way to recycle kitchen and vegetable waste is to bury it in a trench or pit, and then grow peas, beans, courgettes or pumpkins on top of it. In autumn, dig a trench or pit, one spade deep. For peas and beans, dig it one spade wide, and as long as the row. Make a pit around 1m x 1m (3ft x 3ft) for each curcurbit plant. Gradually fill with vegetable scraps and kitchen waste, covering each addition with soil. When full, cover with the rest of the soil and leave for a couple of months. Sow or plant into the trench at the appropriate time for the crop, after the soil has settled.
+
+Hot tips for quicker compost:
+
+\* Fill the compost bin in one go with a good mixture of materials. The heap should get quite hot, speeding up the process and killing weed seeds.
+
+\* Turn the heap. Remove everything from the bin, mix it all up, and replace it in the container. Turning a "hot" heap that has cooled will reactivate it; this can usually be repeated once or twice. Turning a slow heap now and again gives you an opportunity to see how it is working, and to adjust the mixture if necessary.
+
+\* Chop up tough and bulky items with a spade or shredder.
+
+If you have any queries or problems on anything horticultural, phone me and I shall address it in the next issue of gardener's corner. Please see my advert on page 7 for contact details.
+
+The quantities given for this recipe will be enough to treat a small compost heap for about a year, and double for the larger compost heaps.
+
+\* 7 teaspoons liquid glucose
+
+\* 1 teaspoon of each dried; valerian, stinging
+
+\* nettle, camomile, dandelion, and yarrow leaves.
+
+\* 1 teaspoon of dried oak bark
+
+\* 450ml (16fl oz) rainwater
+
+1\. Pour the liquid glucose into a plastic bottle. Add all of the herbs and oak bark, shake thoroughly. Add 2 teaspoons of the mixture to the rainwater and leave to infuse for 24hrs.
+
+2\. Use a pole to make about five evenly spaced holes in your compost heap. Pour 6 tablespoons of the herb water into each hole. Refill the holes with fine soil and press down. Repeat every six weeks until the compost has completely rotted down.
+
+Your garden is well established and may need a feed; therefore I have enclosed this organic recipe to help with the cost of feeding such a large garden. Herbs are not just for culinary use. Infusions and extracts made from herbs and plants, such as nasturtiums and garlic, make effective treatments for both plants and the soil.
+
+This liquid smells very pungent and should be stored away from the house. Nettle fertiliser provides plants with an extra helping of nitrogen. If possible, use stinging nettle when they are about to flower.
+
+1 kg (2lb 4oz) fresh stinging nettle leaves.
+
+2 tablespoons fuller's earth or
+
+2 tablespoons talcum powder in 10 litres (17.5 pints) water.
+
+Chop the nettles and place them in a bucket. Add the fuller's earth or talcum powder, then pour in the cold water. Leave to infuse, stirring once a day. After three days fermentation should begin. The liquid manure should be ready to use after ten days, when the liquid darkens and settles at the bottom. Pour the liquid through a fine sieve into a plastic bottle with caps. Dilute the manure with water (1:10) and pour on the soil around your plants. Use it every two weeks or more frequently if there is a heavy rain.
+
+Dandelion is not just a weed - it can give plants extra nourishment.
+
+\* 2 kg (4.5lb) fresh dandelion flowers and leaves.
+
+\* 2 tablespoons fuller's earth or
+
+\* 2 tablespoons talcum powder in 10 litres (17.5 pints) water.
+
+Prepare in the same way as the stinging nettle liquid manure above. Spray undiluted nourisher onto the leaves of your plants every three weeks or pour it onto the soil once a fortnight.
+
+Tomato plants will thrive with this potassium-rich preparation.
+
+\* 1kg (2lb 4oz) fresh comfrey leaves.
+
+Prepare the manure-using comfrey (see Basic liquid Manure, above). Dilute the manure with water (1:10). Pour it on the soil every two weeks.
+
+Ruthe Gray

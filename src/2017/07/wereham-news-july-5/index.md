@@ -1,0 +1,70 @@
+---
+title: "Wereham News July"
+date: "2017-07-12"
+categories: 
+  - "village-pump"
+  - "villages"
+  - "wereham"
+---
+
+Wereham Heritage Group invite you to ‘come and have a mardle’
+
+Join us in the Village Hall on Saturday 22nd July, 2-4pm for an afternoon of reminiscing and refreshments! Old photographs, postcards, newspaper clippings and original film footage are among the items on display for you to enjoy. ‘Mardle’ is an example of local dialect, meaning to gossip or chat. This is a much-requested follow-up from a very successful event held last year, which saw visitors of all ages explore Wereham-past. This mardle promises to be an afternoon of nostalgia, and a chance to meet up with familiar faces. Our collection is always expanding and we greatly appreciate new material. We have the facilities to make copies of documents, leaving you with the originals in a matter of days. For additional information about the mardle event, or to discuss donating or lending material please contact a member of the committee or email us – werehamheritagegroup@gmail.com.
+
+This event is taking place in collaboration with a Wereham School Reunion, which is being held in the George and Dragon the same afternoon. The event is open to anyone who attended the school and should be a brilliant opportunity to meet with old classmates. For school reunion enquiries please contact Richard Yallop on 01953 889363or richard@richardyallop.com.'
+
+Wereham Craft Group.
+
+I expect that by the time you read this we will have had our summer craft fair, but not to worry we are having another one on November 4th. The craft group is still thriving and we had two new ladies join us last month. I am hoping to be able to arrange for a lady to come along and do a demonstration with her spinning wheel, spinning yarn. If any non members of our group would be interested in coming along to this event then please give me a call and I will give you more details, this applies to people who do not live in Wereham as well you are all very welcome. The craft group meet on the second Tuesday of each month at 10.30am in Wereham village hall. Please contact me for details. Rosemary. 01366 501330 or 07749240606. E-mail rosemary.pease@btinternet.com.
+
+SHORT MAT BOWLS
+
+The bowls group is still quite small but we are a friendly group who just play for the enjoyment, we look forward to seeing more of you on a Thursday evening at 7pm.Please contact Philip Pease on 01366 501330 07759033492.
+
+June Update from Wereham Village Hall Committee
+
+Yard Sale – Sunday 14th May. A briefly wet start didn’t prevent the early risers from checking out the bargains. We had a record 26 yards this year!! Thank you to the FoWVH volunteers who co-ordinated the event, manned the kitchen and the buy a brick stand, and to all of you lovely Wereham people who booked a yard and donated cakes to the cafe. The whole event raised £297
+
+Craft Fayre - Saturday 1st July from 10am to 4pm – pop down for lunch while you browse wonderful treats and gifts from Norfolk crafters. If you would like to book a stall or make a donation to the raffle, contact Rosemary on 07749 240606.
+
+Quiz Night - Saturday 8th July 7.30pm. Book now to secure tickets for this popular quiz! Tickets £5 to include a hot supper, bring your own drinks and glasses. No need for a team, turn up and join another table, all welcome and everyone friendly. Contact Quizmaster John Eastgate on 01366 500766 for more details or for tickets.
+
+Short Mat Carpet Bowls - Thank you to Phillip Pease who helped to launch the new bowls club, see picture of new members. The club are looking to welcome more new members, no previous experience necessary and you’re welcome to pop down for just a social and give it a whirl. Non playing friends and partners also welcome to pop down for a social and chat. If you’d like to find out more, call Phillip for a chat on 01366 501330 / 07759033492 or pop in to the hall on a Thursday night from 7pm.
+
+Volunteering - If you would like to make new friends and have fun whilst helping the fund-raising efforts towards the new hall, then join our Friends of Wereham Village Hall volunteer group (FoWVH). Call Doreen for a chat on 01366 500218 or email doreenirolph@talktalk.net for more information.
+
+Update from the New Build Project Team
+
+We’re continuing to work hard to progress existing funding applications whilst placing new applications, there are so many worthwhile applicants, that it’s proving difficult to get the awards. Other village halls are struggling and several have deferred their building programme more than once. At present, providing we secure a yes from a significant funder during June, then we hope to make a start in July. Please check our Facebook page for the latest news. The community and business ‘Buy-a-Brick’ campaign is progressing well and as a result, we received an offer for a donation in kind from local business CGM who have offered assistance/donations with landscaping or plant supplies for the grounds of the new village hall, thank you very much! If you or your business were intending to donate but have still not got round to it, please log-on to our MyDonate page https://mydonate.bt.com/charities/werehamvillagehallcio - Individulas - donations for £50+ will be added to the donations plaque, donations below will be added to the donations book - Businesses - Monetary and in kind donations for £100+ will be added to the donations plaque, donations below will be added to the donations book Donations can also be made as a gift or in memory (cards available). Please talk to your place of work to ask if they can support your community with a donation. For more information, contact Victoria on 0772551358 or darren.gray@tesco.net Victoria, John E, John M & Rachel
+
+Wereham Village Hall Bonus Ball Club
+
+The lucky winners of £60 each in May was Sue Candler and Anna Bearman – congratulations! Helen Richardson, Secretary.
+
+Events list
+
+Bingo - Wereham Village Hall "Cash Prize" Bingo every Wednesday, doors open 6.45, eyes down 7.30pm. Teas/coffees available with complimentary biscuits. For enquiries contact Doreen on 01366 500218. Pop up Café – first and third Tuesday of the month, 10.30-1pm. Join us for a slice of homemade cake, a hot drink, a natter and a read of the daily papers all for just £1.50. Light lunches also available – look out for our monthly specials! Cake donations/queries to Doreen on 01366 500218. Next dates and Tuesday 4th and 18th July, 1st and 15th of August. Car boot and Café – last Sunday of the month, 9am-1pm (café opens at 8am). Next dates Sunday 30th July, 27th August, 24thSeptember. Café serving bacon butties, hot dogs and hot drinks. £5 per pitch. Contact Philip on 07759033492/01366 501330 e-mail rosemary.pease@btinternet.com. Craft Fayre – Saturday 1st July 10am-4pm. Contact Rosemary on 01366 501330 or e-mail rosemary.pease@btinternet.com . Quiz Night – Saturday 8th July. Tickets £5 to include supper. Bring your own drinks and glasses. Contact Quizmaster John Eastgate on 01366 500766 for more details or for tickets.
+
+For all the pictures and feedback from our events, log onto www.facebook.com/werehamvillagehall. By clicking on the ‘Like’ option, you will be kept up to date on events, pictures and the progress towards a new village hall.
+
+If you have any queries with regards to the plans for funding a new village hall, or anything we’re doing, please contact Victoria Gray, Chair, Wereham Village Hall Management Committee Home: 501277 Mobile: 07725513583 Email: darren.gray@tesco.net or via www.facebook.com/werehamvillagehall
+
+ 
+
+Wereham Parish Council
+
+Next Meeting Date
+
+Tuesday 11 July 2017 (Ordinary Parish Council Meeting)
+
+Agenda items must be received before the end of the month prior to each meeting, items received after this time will not be possible to discuss. Please send to the Parish Clerk at werehampc@gmail.com. The Agendas for meetings are always published on the Wereham Village Notice Board three clear days before the meeting, on the Wereham Parish Council Facebook Page and on the website www.werehamparishcouncil.co.uk You will also find minutes of all meetings here too.
+
+There is one Parish Councillor vacancy on the Wereham Parish Council please visit the parish council website or contact the Clerk for more information by email werehampc@gmail.com or telephone 07795006811.
+
+Helen Richardson Wereham Parish Clerk and Finance Responsible Person
+
+Events at Our Church KEEP THE DATE.
+
+Sunday 16TH JULY 2017.
+
+We are once again celebrating the Feast of St Margaret of Antioch... in the grounds of the Church... Traditional Fun and Games. This year we shall also have a Teddy Bear Activity Display and a new attraction ......Antique Road Show valuation table.

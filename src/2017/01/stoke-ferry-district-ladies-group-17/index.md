@@ -1,0 +1,10 @@
+---
+title: "Stoke Ferry & District Ladies Group"
+date: "2017-01-09"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+  - "villages"
+---
+
+Minutes of the meeting held on November 2nd Mrs Armsby welcomed 21 members. Apologies for absence were received from Valerie Kirchen and Mavis Smith. The minutes of the previous meeting were read and signed. Matters arising. Mrs Armsby thanked everyone for the flowers that she had received following her operation. Mrs Elsey asked members to pay for their Christmas meal tonight if possible. Mrs Heather Durrance agreed to do the 2 December birthday posies. January meeting. This was arranged to avoid doing business at the restaurant. TEAS Anita Horgen and Gypsie Duncan DOOR AND RAFFLE Valerie Kirchen and heather Durrance. BIRTHDAY POSIES (3) Anita Horgen Each member was asked to provide a raffle prize and it will be one ticket each for 50p. It was also decided that a speaker would not be needed. The AGM followed: TREASURER’S REPORT Mrs Elsey stated that although there was a small loss over the year, the bank balance remained healthy, and members decided that subs should stay at £10 per annum, however the Dec meal will not be subsidised. Copies of the accounts were available for everyone to view. SECRETARY’S REPORT Mrs Lankfer said that the club currently has 22 members and an average monthly attendance of 17. We had a varied & interesting programme covering a wide range of topics. The events committee organised several meals & a lovely outing. There were 2 quizzes, and we made 2 donations to Cancer charities. The Chairman thanked all the officers for their hard work and support during the year. She was warmly thanked by Mrs Gillian Smith. ELECTION of officers for 2017. As no-one offered to take on any of the duties, the present officers agreed to stand and were re-elected en bloc. Mrs Janet Cooper gave a summary of next year’s programme, and members were asked to choose their Christmas menu during refreshments. The raffle was won by Doris Armsby and Rosemary White. The meeting closed at 9pm. Claire Lankfer (secretary)

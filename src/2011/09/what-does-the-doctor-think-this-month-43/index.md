@@ -1,0 +1,36 @@
+---
+title: "WHAT DOES THE DOCTOR THINK THIS MONTH?"
+date: "2011-09-27"
+categories: 
+  - "village-pump"
+---
+
+**Aluminium ladders and the Certificate of Proficiency in Personal Survival Techniques:**
+
+Last month, I described how I had fallen in the water at our boat moorings and asked whether or not anyone had any old aluminium ladders which we could cut up and use as escape ladders at the moorings. Several people have empathised with me over my fall into the water, others have found the episode highly amusing (I’ve told you before – It’s cruel to mock the afflicted!) and, to date, the kind residents of Methwold have donated four old ladders to the cause. Some people thought the request for ladders was a joke so, please, if you have an old aluminium ladder which is dangerous or no longer required, could you give me a ring on 01842 828956?
+
+The fall into the river became as nought when compared with another recent experience of mine. Fred Olsen Cruise Lines have kindly agreed to take me on as one of their “panel” of ship’s doctors. From time to time, I will have the opportunity to spend two or three weeks on board one of their vessels as the ship’s doctor, looking after the passengers and crew, much as a GP would look after his patients. With the job comes the pleasure of hosting a table at dinner and Head Office, who is embracing the entire project with enthusiasm, has already started looking at the dress shops for suitable outfits to wear.
+
+As I shall be a member of the crew, it has been necessary for me to undergo a medical examination, receive many vaccinations, have a hearing test (absolutely normal – tell that to Management!), produce 2 photos for a Bahamas seaman’s Record Book and, horror of horrors, undergo training and obtain a Certificate of Proficiency in Personal Survival Techniques. Having spoken to a variety of people who had undergone this training, I noticed that they went pale when thinking about it, some broke out into a sweat, several said that they would never ever do it again and most mentioned that the test involved a jump from a significant height into the water. The training and assessment are carried out at the Centre for Maritime and Offshore Technology in Lowestoft College, a building full of gruesome posters of men with their arms torn off by watertight doors. I was really agitated about the jump into the water as, at the age of six, I had nearly drowned in a swimming pool and, ever since then, I have been phobic about swimming pools and water, always frightened when out of my depth.
+
+The morning went well; we were in the classroom and learned about immersion, preserving heat, flares, seasickness tablets (in the liferaft), hypothermia, GMDDS radio, EPIRB, SART (Google them!), where to tie the liferaft painter, what to do if the liferaft inflates upside down, which equipment interferes with radar in a rescuing craft, and so on. All went well with the exam at the end and I passed with 93% correct answers.
+
+After lunch, we were taken to an enormous tank, about the size of a football pitch, 15ft deep with high walls. During the briefing, I looked around at the inshore lifeboats, liferafts, dinghies, etc around the tank, and I noticed large spray jets above and massive fans at the end of the pool. I though “Some people must have a really rough time in this tank” We were taken up onto the high platform, taught how to put on a large and fiendishly difficult lifejacket and then taught how to step into the water without breaking one’s neck. The right hand is cupped under the chin (to stop it slipping upwards) and the nose is gripped between forefinger and thumb. The left hand is used to hold the lifejacket down when you hit the water. Heart thumping, I stepped off the platform – the lifejacket knocked my hand off my face and water shot up my nose, ending up somewhere in the back of my head! We were then taught how to swim backwards in a long line and how to preserve body heat. Suddenly, at the throw of a switch, we are bobbing around in massive waves, there is a howling gale and monsoon-type rain! We had to make our way to the liferaft at the other end of the pool, climb up and in (extremely difficult), fall out, swim back to the other end of the pool and get into a noose to be winched up onto the platform. The whole exercise was then repeated in the dark – pitch black! We then had to do it all again, each of us righting an upside down liferaft. This involved climbing onto the top of the raft, grabbing a rope and walking backwards on the top (bottom) of the raft until, with a flip, it turns over and you are underneath it! Swim out, climb up, and so on.
+
+After this episode, by the time I had made my way yet again to the far end of the pool, I was exhausted, heart thumping and quite sick and dizzy. “Take off your lifejackets and put it on that pile over there” he said – the sweetest words ever. Then, over the tannoy “This is your captain speaking – prepare to abandon ship”. Grab the wet, unmanageable lifejacket, put it on in the dark, drop the terrible height into the water, notice the water shooting up into your brain somewhere, battle the waves, the wind and the monsoon rain to find the liferaft, climb up and in, climb out, swim back to the other end of the pool and get winched up into “the helicopter”. All the other participants in this exercise were over 30 years younger than me and some actually enjoyed it! “Hey, mate, this is great – do you do stag nights?” some of them shouted. Me, I slunk off to the changing room and spent the next week getting over the post-traumatic stress
+
+I had left Management in the nearby Warners Holiday Hotel (No children – in fact, no-one under 85! We felt much too young to be there and we had never before been to an hotel with an electric buggy park in the restaurant). She had been to see the beautician, a slip of a girl who had been sent on the same course as me “in case she ever had to go to sea” and had been seriously traumatised. At evening meal, the waitress, who, at breakfast, had reassured Deannie that I would be OK, looked at me sideways and told us that she had known exactly what I would be going through but did not dare to tell Deannie. I was delighted to pass the assessment but I definitely fall into the “never again” class.
+
+**TIME FOR SOME WORD PLAY HUMOUR:**
+
+As you know, I love Tommy Cooper jokes but we have rather “done them to death” Here are some similar jokes which he could well have used: _My mate came out of the doctors looking really worried, “What’s the matter?” “I’ve got the big C” “What, cancer?” “No, dyslexia__”_ This reminds me of the dyslexic drunk who choked to death on his own Vimto.
+
+_A pantomime actor was sexually abused from behind last night. To be fair, the audience did try to warn him_
+
+_My new aftershave smells like breadcrumbs – the birds love it! Explosion at a pie factory – 3.142 dead._
+
+_An old lady at a cashpoint asked me to check her balance so I pushed her over. I was walking in a cemetery at dawn when I saw a bloke hiding behind a gravestone. “Morning” I said “No, just relieving myself”._
+
+_I saw an_ _RAC_ _man sobbing uncontrollably and thought “That man’s heading for a breakdown”_
+
+_My son wanted a pet spider -_

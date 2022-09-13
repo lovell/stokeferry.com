@@ -1,0 +1,27 @@
+---
+title: "Wretton Church Clock"
+date: "2003-02-01"
+categories: 
+  - "stoke-ferry"
+  - "village-pump"
+  - "west-dereham"
+  - "wretton"
+---
+
+Time for a little history about this underlooked clock
+
+One cannot deny that Wretton does not have much to shout about, it is comprised mainly of relatively modern houses and bungalows with just a few older buildings, some of which might have an interesting history, it does not have so much as a village sign, unlike neighbouring West Dereham, even if theirs does only depict a dung cart. Wretton is not on a river and it doesn't have a shop or a pub and, although it does have a real country post office, one cannot deny that it is something of a backwater. It is clear that it wasn't always like that however. At one time sheep and cattle drives used to pass this way, it did have two pubs, The Red Lion and The Chequers. The Chequers was once a staging post for stage coaches, indicating that Wretton was on a more important through route in those days than it is now. But today it exists rather in the shadow of nearby Stoke Ferry, which had all the advantages, primarily because of the river but it also had some ground high enough to site a mill, and businesses prospered there, especially in the 18th and 19th centuries when wealthy businessmen built themselves fine large houses. But today Stoke Ferry is to some extent blighted by Favor Parker's bleak and ugly appearance and its associated heavy lorry traffic, and those fine homes of the former wealthy business men stand tall and imposing in the centre of the village, but with no gardens to the front they do close in on the street. By contrast Wretton provides a feeling of spaciousness and clear open skies. It is true that Stoke Ferry has many fascinating architectural treasures but somehow they are largely overlooked by the world at large.
+
+One thing that Wretton does have, which I do not think any other village in the vicinity can claim, is a building that dates back to the twelfth century. I refer, of course, to All Saints Church. This ancient building looks like what I now tend to think of as typical of a small early Norman church with its battlements parapet and crocheted pinnacles atop a square tower. Yet that parapet dates only as far back as 1890, prior to that the tower is believed to have had a small steeple and prior to 1867 the roof was thatched, the Church must have looked very different in those days. I wonder how many other church towers that we regard as ancient had a parapet of this type added in Victorian times. Needless to say a building of this antiquity has much of historical interest associated with it. For Wretton to have had such a fine church in those far off times, soon after the Norman conquest, is further evidence that it was a village of some size and importance, although there is very little left today to suggest that that was so.
+
+The existence of this archetypal village church in its attractive setting goes a long way towards establishing Wretton's identity as a village and helps to give it that country village feel. For me personally the presence of this old church seems to give a link with the past and reminds me very much of the church that was opposite the house of an aunt of mine in a village where I often stayed in my childhood. The similarity extends right down to the church clock and I remember well that clock striking the hour on clear silent moonlit nights in Oxfordshire, so it gives me great pleasure to hear the sound of a striking church clock once again.
+
+Outwardly the Wretton clock looks as though it could be as old as the tower itself, so it came as a surprise to me to discover that it was installed as recently as the 1930's by an anonymous benefactor. Unlike many church clocks the Wretton clock is always within a minute or two of the correct time and the fact that that is so is due entirely to the efforts of John Lingwood who winds the clock and the bell weights and adjusts the time twice a week, this he often does before going to work and on these dark winter mornings it must be a bit of a ghostly task, so many thanks from me John and, I am sure, from many others in the village.
+
+John took me to see the clock mechanism on one occasion. The platform in the tower on which it stands is accessed by way of a fixed wooden ladder. From the bottom looking up the ladder appears to be about 60ft long, although in truth it is probably no more than 25ft, but it is as well that John is a former fireman. The clock was made by J E Howard Smith at their clockworks in Derby and it is a fine example of British light engineering, John tells me that currently the clock loses approximately 30 seconds a day but with his regular checks, which are necessary for winding, it is possible to keep it close to the correct time.
+
+Wretton is a very pleasant place to live for those seeking a quiet life. Quite apart from the locally unique asset of its ancient church complete with its clock, it enjoys the other assets of this area such as the numerous walks with the abundance of wildlife to observe and in these days of personal transport, the easy access to Downham Market, King's Lynn and even Cambridge and Peterborough.
+
+Footnote: The late Doris Coates wrote an excellent book on the history of Stoke Ferry and its associated villages and is highly recommended for anyone interested and not already aware of its existence.
+
+Ron Watts

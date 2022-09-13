@@ -1,0 +1,24 @@
+---
+title: "Guernsey"
+date: "2001-12-01"
+categories: 
+  - "village-pump"
+---
+
+A letter from your correspondent in the Channel Islands
+
+Having just read a couple of emails from friends in West Norfolk about the first snow showers and icy, frosty mornings, I'm feeling vaguely smug as the mild airs of Guernsey wash around us, keeping at bay the harsher winter weather. We did have a brief flurry of hail one day last week ... but weather fronts come and go very quickly and there are still the hardy (or foolhardy?!) taking their daily swims in the sea off the West Coast or in the sea-filled bathing pools nearby. Yesterday I noticed the first camellia in flower and the first azalea, and a week earlier was pleased to see young primrose and Guernsey wild garlic leaves and even a wood violet in bloom - invigorated by recent showers. However, I hope these brief showers are not a precursor of many to come, as they were last year. So far, so good though ...
+
+Life has become particularly hectic for this 'ex-pat' - having returned to near full-time work for the first time in 20 years and with extra home duties such as dog walking - with hubby recuperating from a hip op! However, the prodigal has returned to the fold and has been a tremendous help and has also now been snatched up by the needs of the great Guernsey finance machine, ie. is also working though not quite in the finance industry, but nearly so. I hope his rewards might come in the form of representing the island at his chosen sport and this might ... just might ... lead to the Commonwealth Games in Manchester in the summer!
+
+Our year in the Channel Islands might well be remembered as the year of major operations - with one hip replacement and two spayings - none of which were done to me, I hasten to add! Whether any of them are attributable to the 50+ steps leading to our abode and our consequent going up and down them more than a few times daily will be a matter to be considered in years to come. However, there have been immense pleasures from living here - wonderful sea views, bracing cliff top walks, fields of wild orchids to be admired and - to no lesser extent - the delight of not having to get into a car to go to work, go shopping, go swimming, go fishing, play sport and choose from more than a two dozen restaurants within 10 minutes walk away. And when we do manage to get off the island, it's just 10 minutes to the airport or a 10 minute walk to the ferry!
+
+The neighbouring islands that we managed to visit in the summer were idyllic; Herm - just 20 minutes' ferry trip across the water - seemed like Paradise on a hot July day as we settled on the Shell Beach, with hardly another person in sight and a few small yachts bobbing off the shore. The sea is really aquamarine (!) and so clear - though a little chilly for some! Sark was even hotter and much concern was expressed for the poor horse pulling the cart as we viewed the island from the best vantage point - stopping off to sample the locally made ice cream outside the Seigneur's garden. The only mechanised transport allowed on the island are tractors - with one designated to 'transport' visitors in its 'trailer' up the hill from the harbour. I read recently in the local paper of a lady who was unfortunate enough to break her arm while rock pooling at Sark and who was transported to the emergency ferry sitting on a plastic garden chair in a digger bucket!
+
+But we do miss our friends in West Norfolk and are particularly pleased to see them in Guernsey. I miss my garden too and often wonder how various plants are surviving, in particular some little outdoor cyclamens planted under an ancient greengage tree. A car park nearby, where we often have to leave our car, has had a mass of these delicate mauve-pink flowers blooming in semi-shade under tree in a neglected corner. I wondered how they came to be there as I've only seen one other clump flowering in some woodland nearby. Interestingly snowdrops are rarely seen here and I've not yet found any naturalised ones - perhaps the soil conditions are not suited. But in February we'll be looking for the drifts of semi-wild daffodils growing in abandoned cliff-side fields - a relict of the heyday of horticulture in the island. Similarly - and sadly - there is a constant reminder of this past 'industry' in the tumbledown skeletons of wooden greenhouses - too expensive to maintain and too expensive to remove! They occupy many 'vergees' of land but somehow the States Government haven't managed to come up with a way of converting these into much needed housing plots.
+
+Perhaps in another missive I (or recuperating hubby) will go into more detail about the ancient, interesting but often irritating laws governing society in Guernsey!
+
+Have a merry Christmas,
+
+Helaine Wyett (formerly the Pump Advertising Manager)

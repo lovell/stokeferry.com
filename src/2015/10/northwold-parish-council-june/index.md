@@ -1,0 +1,86 @@
+---
+title: "Northwold Parish Council June"
+date: "2015-10-22"
+categories: 
+  - "northwold"
+  - "parish-councils"
+  - "village-pump"
+---
+
+Councillors present: Cllr. R. Crisp – Chair (RC), Cllr. A. Collins (AC), Cllr. Alison Muir (AM), Cllr. George Gillett (GG), Cllr. Stephen Gillett (SG), Cllr.Adrian Jenkinson, Cllr Frank Eglington and Cllr. Sue Lee t(SL). Present: Pauline Angus –Interim Clerk and Cllr Martin Storey - NCC. The Chair welcomed all to the meeting. Item 15/06/1 Co-option of Councillors to fill the two Parish Council vacancies Two residents Mr A Jenkinson and Mr F Eglington had applied for the two vacant positions on the Parish Council – the Chair asked for a vote by a show of hands for Mr Jenkinson – show of hands was 6. The chair then asked for a show of hands for Mr Eglington initially there was a show of 4, however a discussion took place between the Cllrs and Mr Eglington and a second vote took place upon which a show of 6 hands was made. Both signed the declaration of acceptance of office and joined the Council.
+
+Item 15/06/2 Public Forum – LGA 1972, Section 100(1): There were no members of the public.
+
+Item 15/06/3 Local Authority Reports
+
+I) Norfolk County Council Cllr Storey gave an overview regarding new roads and improvements to roads that Norfolk County Council are proposing to carry out in the area.
+
+ii) Borough Council of Kings Lynn & West Norfolk Not at meeting.
+
+iii) Norfolk Constabulary – SNT The Police SNT sent an e-mail to the Clerk stating that they would no longer be able to attend the Parish Council meetings as they are very short staffed, however, they would continue to send the e-mails with details of crime in the area.
+
+Item 15/06/4 Accepted Apologies for absence - LGA 1972, Section 85(1) & (2): Absent: Cllr Mike Peake and Police SNT
+
+Item 15/06/5 Members Declaration of Interest ( items on the agenda) – LGA 2000 Part III: Cllr Leat for Item 11 and the Chair also for item 11
+
+Item 15/06/6 Minutes of the last meeting held on 19th May 2015 - LGA 1972, Schedule 12, part 41(2): Resolved 15/06/6.01 The minutes of the last meeting held on 19th May 2015 were adopted as a true statement and signed by the Chair (RC). Item 15/06/7 Reports and Matters Arising from the Minutes of the Last Meeting (For Info Only): i) Chairman’s Report The Chairman advised that she had nothing to report other than the matters that will arise later on the Agenda.
+
+Item 15/06/8 Highways Matters:
+
+i) Right of Way (Whittington Church Lane) CGM Maintenance update(Clerk) No update from the Clerk, this would now be passed back to Cllr Jenkinson.
+
+ii) West End / Methwold Road Flooding (RC) West End road seems to have stopped flooding, it was agreed to leave Methwold on the Agenda as it is still prone to flooding.
+
+iii) Sign on Little London Road The sign on Little London Road has been knocked over by a vehicle, the Clerk is to report this to Kings Lynn Borough Council.
+
+Item 15/06/9 Cemetery:
+
+i) Extension for Cremation Plots Area Update(AC) Cllr Collins reported that there is still no progress regarding this matter.
+
+ii) Health and Safety Headstone Testing Update (AC) Cllr Collins drafted a letter to the owners who need to attend to their headstones, Cllr Collins will provide the names and address of the owners to the Clerk for the letters to be sent out.
+
+iii) Information Pamphlet for Plot Owners Update (AC) Cllr Collins has sent the information leaflet to the Clerk for her to arrange to put this on the web site.
+
+Item 15/06/10 Correspondence: No correspondence to discuss.
+
+Item 15/06/11 Planning Applications 15/00563/F Norman Almshouse Two External Extensions dated 9th April 2015
+
+15/00733F Woodlands 11 Little London Road IP26 5NQ Proposed temporary Porta-cabin (further temporary consent) dated 11th May 2015 Item 15/06/12 Finance:
+
+i) Parish Council Bank Balances and Reconciliation The Payments and receipts from 19th May to 2nd June 2015 were scrutinised and approved. The Lloyds Treasurer account balance was confirmed as £58068.76 Resolved 15/06/12.01 that the Bank balances and reconciliation of payments be received and adopted and initialled as such by the Chairman
+
+ii) Cheques for signing and approval and to authorise payment of outstanding invoices Resolved 15/06/12.02 It was agreed to approve the payments of the following outstanding invoices and the cheques were approved and signed by Cllr. R. Crisp and Cllr. A. Collins.
+
+NAME REASON FOR PAYMENT CHEQUE NUMBER AMOUNT E-ON STREET LIGHTING 1957 48.72 BROKER NETWORK LTD PARISH INSURANCE (ONE YEAR PAYMENT) 1958 1872.76 MRS R CRISP SOLICITOR FEE ON BEHALF OF THE PARISH COUNCIL 1959 5.00 MRS P ANGUS CLERK SALARY/POST/STATIONARY 1960 253.94
+
+TOTAL AMOUNT OF CHEQUES FOR JUNE 2015 £2180.42 iii) Donation to the Church to assist with payment for removal of dangerous trees The Church recently paid £1000 to have a dangerous tree removed from their premises, a discussion took place and it was agreed that the Parish Council would donate £200 towards the cost. Item 15/06/13 Parish Matters:
+
+i) Bt Faster Broadband (RC/Clerk) The Chair said that more residents now had the faster broadband.
+
+ii) Lightsource/Solar Panels Quote Update(Clerk) The Clerk said that she had received an email from Lightsource stating that they now have the designs ready and that they need to receive structural approval. The Parish Councils details have been passed to Mr George Weir who is responsible for scheduling projects and Mr Weir would be in contact with the Clerk shortly with an update on the progress.
+
+iii) Whittington Closed Cemetery Update/Maintenance (AJ) Cllr Jenkinson confirmed that the ground maintenance contractors are cutting this from time to time, it was agreed that Cllr Jenkinson would keep an eye on this area.
+
+iv) Play Area Repairs and Update/Swings Quote (AJ/RC) Cllr Eglington said that the post needed for the repairs should be with him on Friday 5th June. The Clerk has sourced a professional company called R J Warren who has been recommended by Methwold Parish Clerk to carry out any future repairs and maintenance and it was agreed that as and when any work needed to be carry out the Clerk would contact this company.
+
+v) Registration of the Clay Pit areas Cllr Muir reported that progress was being made but slowly.
+
+vi) Land at Stoke Ferry The Chair has obtained documents from the Norfolk Records Office that stated that this land known as Constable’s Charity was to be administered by Northwold Parish Council, copies of this was given to all Cllrs and the Clerk. It was agreed that Cllr Eglington would visit the person that was living on the land to try and obtain further information from him as to who he pays rent to.
+
+Item 15/06/17 Members Matters – Items for next meeting Notice board - The Chair asked when the new notice board would delivered, Cllr Jenkinson said that it had arrived and was ready to be fitted. The Chair asked if anyone had any suggestions as to who would be able to fit this, Cllr Eglington said that there is a gentleman in village that would be interested in taking on these odd jobs for the Parish Council and he would speak to him on behalf of the Council.
+
+Sports and Social Club - Cllr Collins said that the Clerk needs to contact the company that cleared the Chafer Grubs away last year to carry out the same work this year.
+
+Risk Assessment – Cllr Eglington asked that the Risk Assessment goes on the July agenda Cllr Jenkinson and Cllr Eglington agreed to carry out the assessment.
+
+Missing documents – Cllr Eglington pointed out that in the past important documents had gone missing, for example the original signed agreement for the Sports and Social Club and asked if there was a system in place to keep these safe, Cllr Muir said that she is willing to store any important documents in her strong room, the Clerk pointed out that she scans important documents and stores them on a memory stick, however the Clerk will show Cllr Eglington where the hard copies are stored – this will go on the July agenda to agree a date and time.
+
+New Memory Sticks – the Clerk will purchase two new memory sticks as back up for all Northwolds records one would be held by the Chair and the other by the Clerk these would be backed up each month by the Clerk and swapped at each meeting so that the Chair and Clerk alway have Northwolds latest records.
+
+Mini Audit – it was agreed that a Cllr needs to check the accounts with Clerk every quarter – this will go on the July Agenda to agree a date and time.
+
+Allotments – Cllr Jenkinson said that one of the allotments is very overgrown, this does not comply with the terms and conditions that states that the allotments need to be kept tidy and cultivated. Cllrs Jenkinson agreed to visit the tenant that rents the allotment.
+
+Cllr G Gillett has been asked by a resident if we can clear the nettles that are growing around the bottom of the slide in the playground.
+
+Date of next meeting: The next meeting will be the held on Tuesday 7th July starting at 7.30 in the Village Hall. There being no further business the Chairman thanked everyone for their attendance and declared the meeting closed at 20.18

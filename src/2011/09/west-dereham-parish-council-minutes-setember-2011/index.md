@@ -1,0 +1,143 @@
+---
+title: "West Dereham Parish Council Minutes Setember 2011"
+date: "2011-09-27"
+categories: 
+  - "parish-councils"
+  - "village-pump"
+  - "west-dereham"
+---
+
+# MINUTES OF WEST DEREHAM PARISH COUNCIL MEETING HELD AT ST. ANDREWS CHURCH THURSDAY SEPTEMBER 1ST 2011
+
+Present: Mrs Claire Cann – Chairman, Mrs Pam Bullas, Mr Mark Dawson, Mrs Ruth Marsters, Mr Paddy Murfitt, Mrs Pam Walker.
+
+29 members of the public
+
+Mr Richard Rockcliffe -CountyCouncillor
+
+_Papers presented to Councillors: Clerks timesheet, expenditure spreadsheet, papers relating to_ _West_ _Dereham_ _Cemetery__, Glazewing Report, Glazewing planning applications, Community Engagement Strategy, Training Policy._
+
+_Pe__ar Technology gave a presentation on the use of their mapping software to the Parish Council before the start of the meeting._
+
+**1\.** **Apologies** **for Absence accepted from:**
+
+Ms Paula Kellingray,
+
+Police Safer Neighbourhood Team
+
+## 2\. No Declarations of Interest made.
+
+**3\. Approval of Minutes**
+
+The minutes of the Parish Council meeting held on04/08/11were agreed as a true record with minor typing errors which had appeared in the draft minutes having been corrected.
+
+4.Matters arising from previous meetings
+
+Out of consideration for the age of a member of the village with a specific interest inWest Derehamcemetery, and those of his family who did not live locally, Item 9 was moved up the agenda.
+
+It was also agreed to open the meeting to members of the public at the outset of this item and Pamela Simone fromKing’s Lynngave a second address to the meeting on the issue of memorials permitted inWest Derehamcemetery. A copy of that address is filed. The Bristow family applied to erect a double headstone joined by a central plinth which does not comply with the current rules. The family feel that the Parish Council’s concerns regarding the sloping nature of the site and its upkeep are not relevant and propose a personal contract with the Council for the upkeep of their memorial. Members of the family also undertook their own survey covering part of the village and claim that with 176 households inWest Dereham, 122 individuals wanted double headstones to be allowed, which showed a clear majority in their favour.
+
+The Chairman responded to the address by stating that the Parish Council was a “burial authority” with legal duties and responsibilities relating to cemetery management found under the Local Authorities Cemeteries Order 1977. Under Article 3 (1) a burial authority “may do all things as they consider necessary or desirable for proper management, regulation and control of a cemetery.” Under Article 4 (1) a burial authority “may enclose, lay out and embellish a cemetery in such manner as they think fit, and from time to time improve it, and shall keep the cemetery in good order and repair.”
+
+The Chairman said the cemetery was a shared facility, and a cemetery that did not have a degree of consistency became a drain on resources for the foreseeable future. The existing rules took into account both the maintenance of the cemetery and its position which was directly alongside the village’s Grade I listed church and own churchyard which included Grade II listed headstones. Local stonemasons were also conscious of the sloping nature of the cemetery.
+
+The Chairman addressed two press reports which appeared in the Eastern Daily Press and the Lynn News. The Parish Council had not responded directly to the press because it felt the appropriate place for discussion was at Parish Council meetings, to which the press had access and were welcome. However, specific claims made in the articles should be addressed:
+
+- the Parish Council had not claimed the village didn’t want double headstones;
+- the family was given the information about when the rules were made within a week of asking;
+- cemetery rules were discussed at 3 public meetings in 2009 on 2 July, 6 August and 3 September;
+- every village household is given the dates of every Parish Council meeting and encouraged to attend;
+- agendas for each meeting were displayed in both village notice boards with cemetery monuments clearly listed as agenda items;
+- cemetery rules are available on the Parish Council’s website and from the Parish Clerk whose details are made available to every household every month;
+- the family’s stonemason acknowledged that the proposed memorial contravened published rules when it was applied for;
+- the Parish Council told the stonemason the headstones were fine but only the joining plinth contravened the rules;
+- the family told the Parish Council the headstone had been made but the stonemason says it has not;
+- the Parish Council is very keen to have the views of the villagers it represents but in 2009 not one member of the village offered any comment in spite of advertised opportunities to do so;
+- comments on what individual Parish Councillors thought were fictitious – they are prevented from giving personal views without declaring an interest and do not do so.
+
+Turning to the survey referred to by the Bristow family, the Chairman said that surveys which are to formulate policy must be accurate and there were problems with the information that had been presented. The most recent available statistical information about the village was from 2007 and came from the Population Estimates Unit of the Office of National Statistics Centre of Demography:
+
+- West Derehamhad 204 households and 78 had been approached, which was 38%;
+- The village had nearly 400 residents over 18 years of age and just over 100 had been questioned, which was less that 30%.
+
+It would appear that:
+
+- one property visited was a holiday let;
+- several properties were let to transitory personnel from the USAF;
+- one house was for sale following the death of its owner and the current owner lived in Stoke Ferry;
+- one signatory was resident in Wereham;
+- one person signed twice;
+- several signatories were under the age of 18;
+- all Parish Councillors and their families were omitted from the survey even though all their roads were surveyed; (Pamela Simone at this point said that her own family had not signed to balance this; the Chairman pointed out that only one member of the Bristow family lived in West Dereham but Parish Councillors and their families numbered nearly 20 and an assumption had been made that they would all vote the same way.)
+- the Parish Council had received a number of observations from villagers:
+    - the surveyors would not answer specific questions
+    - some visits were around9.30 pmand residents were simply shown a picture and asked if they objected
+    - the issue was not properly explained
+    - one household believed it concerned a cemetery outside the village.
+
+The Chairman said the Parish Council had taken advice from the Norfolk Association of Local Councils who had said that “a survey conducted by an interested party holds no merit other than as a catalyst for the Parish Council to conduct their own survey”. Given that general
+
+<table width="100%" cellspacing="0" cellpadding="0"><tbody><tr><td><div><div></div>&nbsp;<div></div>&nbsp;<div></div></div></td></tr></tbody></table>
+
+cemetery improvements have been on every monthly Parish Council agenda since May this year, the Parish Council now proposes to hold an open week at the new village hall when all villagers will have the opportunity to view the proposals which may include cemetery extension to incorporate a flower meadow, native hedging boundaries, ornamental trees and seats which can be personally dedicated and more. Initial costings and upkeep will play an important part in the proposals. At the same time, the Parish Council will conduct a survey approved by the Norfolk Association of Local Councils on monuments and planting, providing as much background information as possible so that informed choices can be made. The Parish Council will ensure everyone over 18 who is resident in the village and eligible to vote will have the opportunity to express an opinion should they so wish.
+
+Finally, the Chairman noted that, according to the family, Mrs Bristow had wished to be buried in St Andrew’s churchyard but the family alleged this request was denied by the Church because Mrs Bristow had not been resident in the village for long enough. With Pamela
+
+Simone’s permission, the Parish Council had written to the Archdeacon asking for clarification since those Parish Councillors who were also Parochial Church Council members knew that there was no residential qualifying period and there was space in the churchyard. A response is awaited.
+
+**5\. Reports:**
+
+**5.1 Chairman’s Report:**
+
+St.Andrews Close
+
+Members of the Parish Council and the Clerk met with Sue Payne, Neighbourhood Officer of the Borough Council at West Dereham Playing Field on August 18th as a result of reports of anti-social behaviour in the area. A resident of St. Andrews Close has reported youths entering his garden from the Playing Field, (chiefly to retrieve balls) and the Safer Neighbourhood Team has become involved.
+
+Sue Payne (Borough Council) has suggested that this nuisance may be mitigated if the play area could be improved and a buffer area could be created between dwellings at the edge of the Playing field and the area where the youths play football. Grant funding could be investigated if there is sufficient interest in the village to have a young children’s play area.
+
+A resident has queried whether a Right of Way runs through St. Andrews Close. Freebridge has been approached to investigate this. It was noted that there is a difference between a private and a public Right of Way and the Parish Council could not become involved with issues between neighbours other than to provide information if possible which may assist dealing with matters. Sue Payne (BC) offered to pass this matter to Freebridge Housing Association who may own the land in question. There was considerable interest in this matter from residents of St. Andrews Close who were in the audience and the meeting was opened to allow them to comment.
+
+Proposed incinerator at Saddlebow,King’s Lynn
+
+It was noted that Campaigners battling plans to build an incinerator inKing’s Lynnhave been given a court hearing to pursue their quest for a judicial review.
+
+Safer Neighbourhood Team
+
+West Dereham Safer Neighbourhood Team Officer Sara Wilson (formerly Green) offered her apologies for not attending the monthly Parish Council meeting yet again. She did however advise that work is currently being carried out in West Derehamin conjunction with partner agencies to tackle anti-social behaviour within the village. A Police Surgery is to be held in the village on September 28th 2011 for which our Safer Neighbourhood Team Officer is also unavailable. It is anticipated that the Surgery will be held at St. Andrew’s Church as the Village Hall is unlikely to be re-opened until October.
+
+**5.2 Clerk’s Report**
+
+- The Parish Council’s External Audit for the financial year ending 31st March 2011 has been completed with no matters raised.
+- The Borough Council of King’s Lynnand West Norfolk Local Development Framework Site Specific Allocations and Policies Development Plan Document Issues and Options Consultation is to take place from 23rd September 2011 to November 4th 2011.
+
+The document sets out the main proposals for where development should occur and key areas that should be protected from new development. It does this by ‘allocating’ specific sites on a map for future development, identifies areas to be protected from development and ‘designates’ these on a map. The document can be viewed at [http://www.westnorfolk.gov.uk/Default.aspx?page=22305](http://www.westnorfolk.gov.uk/Default.aspx?page=22305)
+
+The Borough Council will be running briefing sessions for Parish Councils and organising public events/exhibitions to provide opportunities for consultation about the document.
+
+**5****.3 Village Hall Report:**
+
+- Work continues to progress at the Village Hall. It is expected the builders will be finished in the Hall by mid October.
+- Work still needs to be undertaken on the car park.
+- Suggestions for activities in the Hall were requested.
+
+**5.4 Glazewing Report:**
+
+- Councillors had previously been presented with a copy of the monthly Glazewing Report. It was noted that complaints made in July had not been acknowledged in the report.
+- Members of the public were again advised to report any issues with Glazewing vehicles to Paul Norris by phone on 01366 502922 or via e-mail: [paul.norris@glazewing.co.uk](mailto:paul.norris@glazewing.co.uk) When making a complaint it was also suggested a copy should be sent to the Clerk of the Parish Council as a log of complaints made is kept.
+- A suggestion was made at the August Parish Council meeting that Glazewing could purchase a speed gun for use by residents of Station Road.
+
+**5.4 Broadband Update:**
+
+Further correspondence from Andy Ambridge, Senior Technical Design Architect, on the Hilgay/West Dereham Wi-Fi pilot has been received
+
+Site surveys by BT have been completed for the proposed monopoles at Hilgay andWest Dereham. A 15m monopole at Hilgay will be sufficient to send a narrow beam signal toWest Dereham. A 15m monopole anywhere in the grounds of West Dereham Village Hall will receive a good signal from Hilgay and will have excellent coverage ofWest Dereham.
+
+The Parish Council has previously agreed in principle that a pole can be sited at the Village Hall and the Village Hall Committee will liaise with Andy Ambridge regarding exact location.
+
+It should be noted that the monopole is a temporary installation until Broadband is provided for all ofNorfolkwhich is due to be done by the end of 2015.
+
+**6\. Accounts**
+
+Financial position update:
+
+The Parish Council current account bank balance stood at

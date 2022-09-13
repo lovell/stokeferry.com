@@ -1,0 +1,249 @@
+---
+title: "West Dereham Parish Council - June meeting"
+date: "2018-07-29"
+categories: 
+  - "parish-councils"
+  - "village-pump"
+  - "villages"
+  - "west-dereham"
+---
+
+DRAFT MINUTES OF THE WEST DEREHAM PARISH COUNCIL MEETING HELD AT WEST DEREHAM VILLAGE HALL AT 7.30 pm ON THURSDAY 7 JUNE 2018
+
+PRESENT (Seven Councillors):- Pam Bullas (PB), Claire Cann (CC) - Chair, Tom Foy (TF), Lorraine Hunt (LH), Paula Kellingray (PK), Pam Walker (PW) and Claire Williams (CW).
+
+In attendance: Councillor Sandra Squire (SS), Peter King, Parish Clerk, and 6 members of the public.
+
+The Chairman welcomed everyone present to the Parish Council Meeting.
+
+1\. Chairman’s signing of Declaration of Acceptance form to take office.
+
+CC signed the Chairman’s Declaration of Acceptance form.
+
+2\. Vice Chairman’s signing of Declaration of Acceptance form to take office.
+
+LH signed the Vice Chairman’s Declaration of Acceptance form.
+
+3\. Apologies for absence
+
+Apologies were received from Councillor Brian Long. No other apologies were received.
+
+4\. Declaration of Interest on agenda items
+
+No declarations were made.
+
+5\. Use of social media, audio recording of meeting and invitation for public contributions
+
+CC asked “Will anyone present be filming, recording, blogging, or tweeting during this meeting?” There was no response from the members of the public present. CC advised members of the public that if they wished to comment on any item, before a decision was made, they should raise their hand and they would be invited to speak.
+
+6\. Minutes of the Annual Parish Council meeting held on 3 May 2018
+
+CC confirmed all Councillors had seen the minutes of the Annual Parish Council meeting held on 3 May 2018. The councillors agreed that subject to a spelling mistake in minute 9.4 noted, that they were content that the minutes should be signed as a true record. CC signed the minutes.
+
+7\. Matters Arising from the Minutes
+
+7.1 Disciplinary and Grievance Policy (8.1) - The Parish Clerk reported that the policy had been updated and a revised copy added to the Parish Council website.
+
+7.2 Norfolk County Council Highways Department (NCCHD) - Footpath Noticeboard (9.2.1) - The Parish Clerk reported that he had received a phone call from NCCHD and hoped to resolve the matter of re-installing the footpath noticeboard in the near future.
+
+7.3 Norfolk County Council Highways Department (NCCHD) - Basil Road Bridge (9.2.1) - The Parish Clerk reported that NCCHD had inspected the bridge and considered it to be safe and stable and that it has been added to their work’s list however the department have noted that it is a low priority.
+
+7.4 Norfolk County Council Highways Department (NCCHD) - Additional Speed Monitor Post (9.2.1) - The Parish Clerk reported that he had approached NCCHD regarding the installation of an additional speed post at the southern end of Station Road. The Parish Clerk noted that NCCHD stated that did not have any objections, but requested that an update to the form ’Memorandum of Undertaking’ (list of speed monitor positions) should be made and sent to them.
+
+7.5 Barclays Banking (9.2.2) - The Parish Clerk reported that he had a Barclays form to apply for a Parish Council Debit Card and that it required signatures by Parish Councillors and noted that a resolution was required to be passed and shown to be recorded in the minutes of the meeting (see Minute 9.2)
+
+7.6 War Memorial (9.3.4) - The Parish Clerk reported that he had identified and contacted three local stonemasons, noting that he had agreed to send some photographs to one of them. The Parish Clerk reported that he had been unable to identify any grant funding previously awarded the Parish Council.
+
+7.7 Ditches adjoining land opposite the The Row, Ryston Road (9.5) - The Parish Clerk reported that Barry Hawkins had provided an out of hours emergency contact number to be added to the Parish Council Business Continuity Plan in the event of the ditches flooding in the farmland area adjacent to the Row, Ryston Road.
+
+7.8 Overgrown brambles growing on the side of 10 Ryston Road (9.5) - The Parish Clerk reported he had received a letter from Mr Wiseman, a member of the Cleanup department employed by the Borough Council of King’s Lynn and West Norfolk (BCKLWN) Parks and Open Spaces Department and read it to the meeting.
+
+“I can confirm that the land in question is owned by the Borough Council of King’s Lynn and West Norfolk, although I’m not aware that the Borough Council have ever regularly maintained it. Having looked through our records, I can see West Dereham Parish Council previously enquired about this area; at the time the Parish were advised that the land did not form part of the lease to West Dereham Parish Council and that, in accordance with the playing field lease, there were no obligations on the Borough Council to maintain this strip as an access. Given the Borough Council do not maintain anything in the vicinity, and the area does not offer amenity value, it would not be cost-effective for the Borough Council to incorporate this land into its grounds maintenance schedules. In accordance, there are no plans for the Borough Council to begin maintaining the area. If there are branches/brambles encroaching onto neighbouring property, the adjoining landowner does have a common law right to cut back any overhanging vegetation to their boundary.”
+
+The Parish Clerk added that he had written back to Mr. Wiseman including photographs of the side access to 10 Ryston Road identifying the problem and requesting that the matter be reconsidered. CC commented that taking into consideration the contents of the letter from Cleanup, that BCKLWN do have responsibility and therefore an obligation, as it is a route into the recreation ground. CC added that it is one of the few areas in the Parish that provides amenities to the village. SS requested that the Parish Clerk send her copies of the photographs so that she can investigate the matter.
+
+7.9 Glazewing - Response of emergency services to incident (9.6) - The Parish Clerk reported that he had received a reply from Mr Norman, Group Manager, Western District of the Norfolk Fire and Rescue Service Group Manager, in response to a question raised about their evacuation policy following an incident of a suspected bomb on 1st February at the Glazewing Waste Management Site and read it to the meeting.
+
+“I have been passed your query regarding evacuation for the incident at Glazewing yard in Dereham. I have now received a statement from the Fire Commander on scene and feel sufficiently informed to now reply to your question regarding evacuation of nearby residents. Norfolk Fire and Rescue Service responded to this incident to support the Police operations and determine what evacuations needed to take place. An evacuation cordon of 600 metres was considered but due to the surrounding barriers/cover that was available, this distance was reduced as there was no risk deemed for local residents. On this occasion the risk was relevant to the on-site staff who were moved away to a safe distance. The Incident Commander has confirmed that during the incident, no on-site workers, emergency service personnel or local residents were put at danger. This Commander is also a qualified Hazardous Material Environmental Protection Advisor so I do trust his judgement on his assessment of the risk posed to the local residents. Hopefully this answers your query, please feel free to call me if you would like to discuss anything further.”
+
+The Parish Clerk noted that PB had provided land co-ordinates of a residence whereby a Parishioner is resident close to the Glazewing site entrance and has passed on this information to both the local Police and the Fire and Rescue Services, for possible future reference.
+
+7.10 Insurance Premium Renewal (10.3) - The Parish Clerk reported that he had paid the premium for 2018/19 and noted that he had written to the insurance brokers, following his telephone conversation with them to confirm the addition of the recreation ground goalpost to the list of items covered for risk. The Parish Clerk added that the premium payment is showing as paid against the Parish Council’s bank account statement.
+
+7.11 Fly tipping (15) - The Parish Clerk noted that at the last Parish Council meeting, items were reported as being left in an act of fly tipping by the lay by, on the A134 road, but that when he checked, there was at the time, no further evidence of anything deposited.
+
+It was noted that other Matters Arising items would be covered on the meeting agenda.
+
+8\. Reports
+
+8.1 Chairman’s Report -
+
+8.1.1 Natural Burial Area - CC reported that she was concerned with the condition of some of the flowering cherry trees recently planted in the new natural burial area of the cemetery and proposed to speak to the nursery suppliers. CC also reported that she was aware of two expressions of interest to reserve four plots in the natural burial area. CW noted that she was looking into the size and costing of wooden benches for the natural burial area.
+
+A Parishioner questioned when the tall grass meadow area of the Cemetery would be cut. The Parish Clerk commented that he would have to check the agreement with the grounds maintenance company. CC stated that the natural burial area requires its grass to be cut, together with a couple of pathways through the meadow, if it is not due to be mown in the near future.
+
+8.2 Parish Clerk’s Report -
+
+8.2.1 Speed Monitor - The Parish Clerk reported that it was noted that the speed monitor was faulty and he had returned it to the supplier. The Parish Clerk commented that the supplier was now investigating whether the monitor had received a hit, possibly from a passing vehicle or an act of vandalism and would advise on the cost of repair.
+
+8.2.2 Speeding in Church Road - The Parish Clerk reported that he had been in email contact with a parishioner who was concerned about speeding vehicles in Church Road and had questioned whether the speed monitor could be more effective by re-positioning it onto other traffic sign poles in the vicinity. PK commented that perhaps the speed monitor could be turned around on its present pole fixing.
+
+8.3 Handyman’s Report –
+
+The Parish Clerk provided Roy Poole, the Handyman’s Report of work carried out during May 2018, noting the following actions:- 8.3.1. Speeding Monitor - Moved the speed monitor from Lime Kiln Road to Church Road. An additional change of speed monitor battery was necessary whilst the speed monitor was positioned in Church Road, before the reported fault (see 8.2.1) was identified. 8.3.2. Grass Management - Strimmed the grass verges at the 10 bridges on two occasions. Also strimmed around the phone boxes, the safety signs, the corner at Bath Road and cut back brambles growing on the footpath. 8.3.3. War Memorial in St Andrew’s Churchyard - Completed rubbing down of metal pole fittings surrounding the War Memorial in St Andrew’s Churchyard. Commenced painting the poles and weeded around memorial stonework. Noted that there are some signs of subsidence on Bath Road side of the memorial. 8.3.4. Cemetery and Remembrance Garden - Continued the weeding in the borders and around hedgerows of the cemetery and weeded and edged around the Remembrance Garden. Checked trees in Natural Burial area.
+
+The Parish Clerk noted that the Handyman had worked 22 hours during May to catch up on hours from not worked during April.
+
+CC asked that priority be given to the two planters in Church Road and questioned what had become of the Geraniums from last summer? The Parish Clerk is to speak to the Handyman.
+
+8.4 Police Report -
+
+PK reported that there had been several local farm break-ins involving the removal of horse tackle. PK added that there had been an attempted break-in at one farm in the West Dereham area, however a security system, including a cameras were thought to have deterred the would-be burglars from entering the premises. CW reported that there had been an incident this morning whereby a male made an unsuccessful attempt to pull a female parishioner into his car as she was walking along Ryston Road towards Downham Market. CW commented that the car registration number had not been obtained, but that the car model was noted as a Volkswagon Passat, dark blue in colour and that the male had tattoos on his left arm. CW noted that the Police have been informed.
+
+CC requested that PK obtain details to enable the Parish Council to add to the next Parish Notice. CC commented that she had heard that in the north west part of Norfolk that dogs and horses were being targeted for theft.
+
+8.5 Village Hall Report -
+
+PK commented further to her report last month with regards to the Village Hall purchasing a digester for the sewage system, it has been identified that Hall septic tank does not have a ‘sealed unit’, that will now need to be installed. PK noted that the Village Hall have been asked to carry out a ‘usage survey’. PK added that the septic tank had been emptied on 4 occasions in the past 5 weeks. PW questioned what the frequency of emptying the tank had been when the Hall first opened? PK replied that it had been emptied once every 3 to 4 months, but now the issue was that the Hall was being used more frequently, together with concern about the height of the water table and its detrimental effect on not having a sealed unit. CC questioned why when the Village Hall was being restored that the building inspectors, with the knowledge of both its size and its purpose, agreed to the installation of a drainage system without a sealed unit in such a land area and water table and yet insistent that ramps for disabled access and the provision of a disabled toilet were part of the installation regulations? CC added that there should be some responsibility taken by the building inspectors to account why this situation has arisen.
+
+PK reported that the Hall had held 3 private parties in the past 4 weeks and noted a wedding reception booked for later in June. PK added that one of the drinks chiller cabinets in the bar had broken down and would have to be replaced.
+
+8.6 Glazewing Report -
+
+CC commented that there had been a series of statements relating to the waste management site since the last Parish Council meeting. CC added that the Council was struggling to understand both conflicting messages and unanswered questions as to what was happening.
+
+PB reported that she had picked up a 4 foot long piece of metal lying on Station Road (The Parish Clerk displayed a picture of the item on the overhead projector). PB commented that she sent a copy of the photograph to Glazewing with a message saying that she had picked the item off Station Road and a further message saying that according to the Environment Agency, the gates of the Glazewing skip yard were supposed to be shut at the close of business and that they were noted to have been left wide open.
+
+The Parish Clerk commented on a series of news events involving Glazewing and a company named Veolia ES UK Ltd., a major UK company involved with waste management. The Parish Clerk reported that an article that had appeared in the Lynn News on 18th May had been brought to his attention whereby Veolia had released a notice for an application for a Goods Vehicle Operator’s Licence to change an existing licence, to add an operating centre to keep 8 goods vehicles and 0 trailers at Station Road, West Dereham. The Parish Clerk added that the notice invited any owners or occupiers of land and buildings living near the operating centre, who believe that the use or enjoyment of that land would be affected, should make written representations to the South East & Metropolitan Area of the Office of Traffic Commissioners, with a copy sent to the applicant stating their reasons within 21 days of the date of the notice. The Parish Clerk noted that any representations should have been made by the deadline of 6th June
+
+The Parish Clerk commented that he had made attempts to contact the Traffic Commissioners to confirm that the notice held any continued relevance as he had noted that all previous applications linked to Station Road had been made in connection with the East of England region of the Traffic Commissioners. The Parish Clerk added that he had first emailed and then tried to ring the Veolia local regional Communications officer to clarify different points, but had only received one email response from Veolia. The Parish Clerk went on to report that he reviews the East of England Traffic Commissioners website that releases a weekly bulletin that records applications, changes and decisions to operators’ licences. The Parish Clerk noted that on 9th May he identified an application by Veolia for 7 vehicles, at operating centre, Station Road, West Dereham followed by a withdrawal notice on 16th May. The Parish Clerk reported that on 23rd May, there was a further application, a new authorization for operating 8 vehicles at the Station Road operating centre.
+
+The Parish Clerk reported that he agreed with the Traffic Commissioners central enquiries team that he should send them by email, a copy of the original newspaper article (Lynn News on 18th May) to confirm its relevance. The Parish Clerk then reported he had received a letter dated 1st June 2018 from the East of England Traffic Commissioners that he read out to the meeting.
+
+“The Goods Vehicles (Licensing of Operators) Act 1995, Operator: Glazewing, Proposed Operating Centre: Station Yard & Scrap Yard, Station Road, West Dereham. I refer to your correspondence sent on behalf of West Dereham Parish Council in respect of the above application. I now write to advise you that a public inquiry will be convened to consider this application, in view of the existing operations of the company, the opposition correspondence received and the road safety concerns raised. Prior to the inquiry, a traffic examiner will visit the operating centre and provide a report on its suitability for the intended use - the findings of that report will then be considered in the eventual decision on the application. The inquiry will also provide consideration of the request of Veolia ES (UL) Ltd for eight vehicles at the above operating centres.
+
+The case has today been forwarded to the public enquiry team in the Eastern traffic area office, in Cambridge. The Public Inquiry team will write to you with further details at a later date, these will include notice of the date, venue and full details of the issues of concern to the traffic commissioner. The document ‘A Guide to Public Inquiries’ provides more information on what can be expected at a public inquiry and what you need to consider. It can be found at; https://www.gov.uk/government/publications/a-guide-to-public-inquiries . If, after reading the document, you have any queries regarding the case please telephone the team leader on that section, Geoff Cowan, on 10223 531011.
+
+It would be appreciated if you could allow three weeks from the date of this letter before calling as they will be in a better position to assist with any enquiry.” Letter signed by Jacob Jowitt.
+
+PB reported that Glazewing had put a message on the West Dereham Community Facebook page that states,
+
+“Hello all, just for clarification, as of 1st June 2018, Glazewing Ltd. has sold its waste side of the business to Veolia UK. As a part of this sale they have acquired some of our vehicles. So this will not increase the amount of vehicles operating from West Dereham as there will be no waste coming in and out of the Station Road site. Traffic will be greatly reduced over the coming weeks.”
+
+LH reported that she had had a telephone conversation with Veolia’s head office customer service team and that they had offered no explanation of their plans. LH added that she had then telephoned and spoke with Jon Miles, Director at Glazewing and requested whether he could shed some light on the situation and he responded that ‘I wouldn’t worry because the Traffic Commissioner has rejected the application so Veolia is not going to be taking over the company’.
+
+The Parish Clerk confirmed the content of the email message he had received from Veolia dated 25th May. ‘Thank you for your recent enquiry. I can confirm that Veolia does not have an interest in the site you refer to at West Dereham. Any enquiry regarding the operation of the site should be directed to Glazewing.’
+
+PB noted that she had also received a letter from East of England Traffic Commissioners, that was slightly different from that received by the Parish Clerk, referring to Glazewing’s previous application and her representation. PB read out part of the letter. ‘I can confirm that your letter of representation has been ruled invalid by the Traffic Commissioner. That said, I’m also writing to advise you that a public inquiry will be convened to consider the application in view if the existing operations of the company’……
+
+CC stated that it is a very confusing position and that further advice was required. CC noted that the Parish Council is unable to make a representation as an elected body to the Office of the Traffic Commissioner. SS suggested contacting Councillor Brian Long to see if he has any further information. SS offered to contact the BCKLWN manager of the waste management department. LH added that in her conversation with Jon Miles that he had mentioned that rather than post message on local social media sites, that he would rather contact the Parish Clerk and exchange information.
+
+PB reported that she had heard from residents who live in one of the Station Houses that they had been infested with flies and complained that skip lorries were being left in the yard over weekends and not being tipped until the following Mondays. PB noted that she had sent an email to the Norfolk County Council Monitoring & Control Officer Planning Services, Community & Environmental Services (NCC-PS,C&ES) to advise him of the position as well as the questions regarding the position of the site. PB confirmed that the residents had also contacted the Environment Agency twice regarding the problem.
+
+9 Finance
+
+9.1 Accounts for May Advance payments. 9.1.1 Cash Flow and Cash Book May 2018 – The Parish Clerk displayed the Cash Flow on the overhead projector, followed by the Cash Book noting that during May, there had been income received of £362.50 comprising of £300.00 for a burial plot reservation and £62.50 for allotment deposit and fees. 9.1.2 Cheque Payments for Approval for May 2018 – The Parish Clerk displayed the itemised pending payments on the overhead projector. The meeting noted that a deferred payment would now be paid to the Environment Agency for outstanding invoice of £16.28.
+
+Payee Cheque No Net VAT Gross Remarks Environment Agency 101018 £16.28 £0.00 £16.28 Drainage costs for allotments and farm tenancy area Holly Landscapes 101023 £975.00 £195.00 £1,170.00 Grounds Maintenance (April and May) R. Poole 101024 £241.97 £0.00 £241.97 Handyman's Payment, Expenses & Travel for May 18 P.King (Parish Clerk) 101025 £647.69 £0.00 £647.69 Staff salary May (5 weeks) and expenses
+
+Total £1,880.94 £195.00 £2,075.94
+
+CC asked the Councillors present if they were content with the payments. All Councillors noted they were content. CC concluded that the cheques and control processes would be signed off at the end of the meeting.
+
+9.2 To pass a resolution for the Parish Council to apply for a Barclays Bank Debit Card to make payments
+
+The Parish Clerk read out the resolution:
+
+“At this meeting it was resolved that: 1. It was in the Association’s interest to apply for the Business Debit Card service. 2. The Association agrees to be bound by the Business Debit Card Terms and Conditions 3. Notwithstanding that the existing Appointment of Bankers provides for more than one person to give instructions to the Bank, the Association agrees, for the provision of Business Debit Cards only, to allow Barclays to accept and act on instructions from any one nominated cardholder. 4. Authorised persons identified in section 3 of the Appointment of Bankers are authorised to apply for, nominate cardholders, and to accept the Business Debit Card Terms and Conditions on behalf of the Association. 5. To set a transaction limit of £100.00 (one hundred pounds) and for payments. 6. Any transactions are to be made only with the approval of the majority of West Dereham Parish Council Councillors (minimum of 4 Councillors).
+
+We confirm that the above is an accurate statement of what was agreed at the meeting.”
+
+CC commented that the Parish Council is only applying for a debit card as there are now some payments that cannot be made without one, such as the payment for the Parish Council website
+
+The Parish Clerk, noted that in the context of a Parish Council, the term applied in the resolution of an ‘Association’ is the most appropriate choice of description set by Barclays in their documents.
+
+Following a question from a parishioner regarding the on-line payment security merits of debit as opposed to credit cards, the Councillors agreed to transfer monies into one of the smaller bank accounts to enable payments and to reduce risk.
+
+9.3 To Review the Parish Clerk’s Salary
+
+CC noted that the Parish Clerk’s pay is reviewed every year and has been discussed by the Parish Councillors as a Personnel matter. It was noted that the Parish Clerk’s pay would increase on his current pay point by the nationally agreed Local Government annual percentage increase with effect from 1st April 2018 and an increase to his pay point spine by one point to scale 23, with effect from 1st May 2018.
+
+10\. Parish Council Internal Affairs and Policies
+
+10.1 Allotment Tenancy Agreement
+
+CC stated that the Allotment Tenancy Agreement would be placed on the next Parish Council Agenda in light of several advisory documents that are now available and to allow for further examination of the terms to be reviewed.
+
+10.2 Travel and Expenses Policy
+
+CC asked the Councillors present if they were content with the reviewed policy. All Councillors noted they were content. CC noted that the policy had been reviewed.
+
+11\. To comment on Planning applications currently received -
+
+11.1 18/00712/O Application for construction of six dwellings at Station Farm, Station Road - Decision
+
+PB referred to a Notice of Decision - Refusal of Outline Planning Permission received from BCKLWN Environment and Planning Department dated 29 May 2018 and read reasons to the meeting.
+
+‘Outline planning permission is refused for carrying out of the development referred to above for the following reasons:
+
+1\. The site lies in West Dereham, a smaller village and hamlet, where development is restricted unless it is required in relation to a rural enterprise or represents infill development. The applicant has not provided any special justification why countryside protection policies should be relaxed, and the proposal does not represent the infilling of a small gap within an otherwise continuously built up frontage. 2. The proposal is remote from local services centre provision conflicting with the aims of accessible development, the need to minimise travel, and the ability to encourage walking, cycling, use of public transport and reduce the reliance on the private car as represented in national and local policy. 3. If permitted, the proposed development, due to its location to a known source of noise and odour, would not secure a good standard of amenity for future occupants of the dwellings.’
+
+PB remarked on point 2; that there is plenty of opportunity for ‘walking’ in the West Dereham area, however, the aims of using public transport in the village are pretty non-existent. PB noted that point 3, whilst the planners recognise ‘a known source of noise and odour’ in Station Road this fails to have any significance with the Traffic Commissioner. CC noted that the Parish Council agreed on points 1 and 3 in respect to position and also felt that the roads were unsuitable as a result of large vehicles in the area.
+
+11.2 Chapel Home Farm - Field entrance in Ryston Road
+
+The Parish Clerk noted that he had sent a map and photographs of the gates in question to BCKLWN Planning Department for their advice.
+
+11.3 Crimplesham Quarry (Northern Site) Main Road, Crimplesham PE33 9EB - Retrospective application for the continued use of storage bays: Frimstone Ltd.
+
+The Parish Clerk reported that he had received a letter from NCC-PS,C&ES inviting the Parish Council to make any observations to the application made by Frimstone Ltd. and drew the meeting’s attention to the related documentation and plans shown on a noticeboard.
+
+The Parish Clerk noted that the Parish Council raised the following questions to ask NCC-PS,C&ES whether, 1. Is the application an extension of permission for bays they already had permission for, but simply wish to extend the timescale on? Or 2. Is the application retrospective permission for building bays for which they needed planning permission but didn’t bother to apply for?
+
+The Parish Clerk read out the response.
+
+‘to confirm this application is for the existing storage bays on site that previously had planning permission. However the previous planning permission lapsed in January and therefore a new application has been submitted by the applicant to retain these storage bays and bring this in line with planning control.’
+
+CC commented that the quarry in question was meant to have closed some years ago, but permission to extend its usage has continued. The councillors agreed that the Parish Clerk should respond to NCC-PS,C&ES that the Parish Council is concerned that this quarry was supposed to close some years ago and handed back to wildlife, but has no other observations. 12. General Data Protection Regulation (GDPR) - Update
+
+CC requested that PW, PB, TF LH and PK individually confirm by email that they do not hold a copy of the Parish Electoral Roll for addition to the data protection records.
+
+The Parish Clerk reported that that information pertaining to the new General Data Protection Regulations had been placed in the latest Parish Magazine Notice and on the West Dereham Parish Council website noting that if anybody would not like the Parish Council to hold their personal details to contact the Parish Clerk and request their removal. The Parish Clerk noted that he had been working on a Parish Information Audit and had produced a draft General Data Protection Regulations Policy, a draft Consent Form and draft General Privacy Notice. The Parish Clerk added that he would also to draft a Staff and Parish Councillors Privacy Notice.
+
+13\. Village Signs
+
+CC commented that the Parish Council had considered working towards replacing its two Village Signs. CC noted that the Parish Council had previously asked Parishioners for ideas of what they would like suggest to add towards the signs’ designs and that some views had been received. CC added that the consultation should now be repeated as the Parish Councillors now feel that they are in a position to purchase one new village sign. CC noted that the cost of a replacement, hard wearing double-sided aluminium sign is approximately £3,000. CC added that it is possible to have several depictions of a number of pictures on both sides of the sign showing many aspects of the village and the two sides can show different images. CC noted that the Parish Council needed to consider whether to purchase one sign from its existing financial reserves and to add information in the Parish Notice for next 2 to 3 months requesting any new design ideas. The Parish Councillors discussed the Parish Council’s financial position and was advised by the Parish Clerk that a further £725 had been accrued following his conversations with the HMRC relating to two historic, but unexplained credit receipts. The Councillors agreed to go ahead and commence the process of purchasing one new sign. CC commented that the full commissioning process would probably take in the region of 18 months to 2 years.
+
+14\. Correspondence
+
+14.1 CC noted that the NCC had launched a public consultation in response to calls for a Norwich Western Link to tackle traffic issues to the west of Norwich. It was agreed to add details of the consultation to the Parish Council website noting that comments are requested by 3rd July.
+
+14.2 The Parish Clerk noted that all other correspondence received had been raised under other items on the meeting agenda.
+
+15\. To receive further reports/items of business for the next Agenda
+
+15.1 PW noted that she would be attending the next meeting of the Stoke Ferry Internal Drainage Board on 14th June and would raise the concerns of the ditches adjacent to The Row, Ryston Road.
+
+15.2 PB raised concern regarding details on the Parish Council website relating to the Garden of Remembrance (spelling error) and the lack of mention of her Councillor’s areas of responsibility. PB added that photographs depicting the allotments should be added to the website.
+
+15.3 LH requested that the next Parish Council meeting agenda include an item to approve payment for the purchase of a new laptop.
+
+15.4 PK requested that the Village Support Grant payment be added to the payments at the next parish Council meeting. CC noted that should have been amongst first payments of the new financial year.
+
+16\. Date of next Parish Council Meeting
+
+To note that the next Parish Meeting will be held on Thursday 5th July 2018 at 7.30pm in the West Dereham Village Hall. The meeting will be preceded with Open Surgery at 7.00pm
+
+17\. Open Forum
+
+A Parishioner asked if the Village has an actual crest? CC responded that the village has 4 crests all relating to St Andrew’s Church and these all appear on the sign at the junction of Church, Station and Hilgay roads at the southern end of the village and also in the Church on the board of past Rectors.
+
+A Parishioner asked where the nearest sewage system is in in relation to the village and whether the Village Hall could be connected to it? PK responded that the Village Hall Committee had looked into various drainage scenarios, including the sewage system and had concluded that the purchase of a digester was the most cost effective option.
+
+Closure : The Chairman thanked everyone for attending, and final closure of the meeting was at 9.22 pm. There were no further items raised by members of the Public present.
+
+Next meeting is the Parish Council Meeting on Thursday 5th July 2018 at 7.30pm with Open Surgery from 7.00pm.
+
+Clerk: Peter King - Email: clerk@westderehamparishcouncil.uk Telephone: 01366 502110
+
+Chairman’s signature …………………………………… Date ………………………

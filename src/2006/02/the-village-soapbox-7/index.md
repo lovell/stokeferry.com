@@ -1,0 +1,26 @@
+---
+title: "THE VILLAGE SOAPBOX"
+date: "2006-02-01"
+categories: 
+  - "village-pump"
+---
+
+Ron has a critical look at the extrem Catholic Group "Opus Die" and ponders on the wisdom of Tony Blair in appointing a member of that group as Education Secretary!
+
+The Power of the Church
+
+According to a recent TV documentary what were probably exaggerated claims were made in the book The Davinci Code for the behaviour of the rather extreme Catholic group 'Opus Dei', nevertheless they do seem to be a rather odd lot. From what I understood membership of the group falls into three main categories; numeraries, supernumeraries and assistant numeraries. Numeraries form the core and are more like monks and nuns. Male and female numeraries are kept completely separate however, women numeraries never have anything to do with their male counterparts and live totally separate lives, even to the extreme where they do not see magazines available to the men. The cult was said to glorify and sanctify pain, they believe in corporal mortification, numeraries wear a 'cillice' (or 'sillis'?) for 2hours or so a day; a cillice is a band made from something like chicken wire with spikes attached that is worn around the thigh like a distinctly unsexy garter, positively uncomfortable I would think. Apparently this is to remind them of the suffering of Christ. Supernumeraries lead a rather more normal life but are required to put their spiritual life first. In the past Opus Dei has been seen as a rather secretive society and viewed with some suspicion by the Catholic church hierarchy, more recently however, it has found favour with the Pope and ordained members of the group have been appointed to parishes. In principle there is no harm in people choosing to join such a group but anyone who does is likely to have views that might lead them to make decisions that are strongly influenced by their beliefs and take consequential actions that impinge on others. I find it rather disturbing, therefore, to learn that our Secretary of State for Education, Ruth Kelly, appointed by Tony Blair, himself an obvious Catholic sympathiser, is a member of this fanatical Catholic cult.
+
+These days we see an increased emphasis on 'faith schools' that promote religious beliefs, faith based welfare, faith groups with preferential access to government committees. The BBC is under pressure to provide more religious based programmes on TV and we still have a religious based 'Thought for the Day' every morning on Radio 4. 'Creationism' or 'Intelligent Design' is being taught in some US schools and finds much support in the UK.
+
+I have always believed that people should be free to pursue their own beliefs and worship in their own way as long as they do not attempt to force their beliefs on others or take actions influenced by their beliefs which impinge on others. People should be free to discuss openly their beliefs and the beliefs of others, no religion should be protected from honest criticism but it does seem as though there is a risk that the proposed law against inciting religious hatred, along with the current obsession for 'political correctness' might be used to stifle open debate. We have always maintained the right to free speech in this country but it does seem as though that freedom is now in jeopardy. \[It is reasonable to have a law which protects people of differing races from critical comments, an individual cannot choose his race, but a person's belief is their choice.\]
+
+I have been appalled by the way in which so much human suffering in the past has been attributable to religious beliefs and religious zealots, I was pleased with the way in which the world appeared to becoming more secular and, as a result, more tolerant as the twentieth century progressed. Sadly we are now seeing a marked reversal with an increase in religious bigotry and religious strife throughout the world with more human suffering in the name of religion. I believe this country to be an essentially secular society in that the majority of the people are secularist, if not by open admission then by their actions, yet the established religions continue to exert considerable influence on those who control our lives.
+
+Refuse Collection
+
+Merely an observation this:
+
+The council went to the trouble of providing every household with a little green leaflet on refuse collection which also detailed the collection arrangements for the Christmas and New Year period and on which it was made clear that if your usual collection was on Wednesdays the next collection following the collection on Wednesday 21 December would be on Thursday 5 January. Despite this clear statement wheelie bins and plastic sacks started to appear on our pavements on Tuesday 27 December, by Monday 2 January it seemed that more than half the households had their litter cluttering the pavements making the whole area look untidy and encouraging foraging rodents. To add to the problem the recycling 'green bins' that were also supposed to have been collected on Thursday 5 January were left out on the pavements uncollected until Wednesday 11 January, needless to say the wind got up on Tuesday 10 January to scatter the paper and plastic bottles from those bins. What a shambles!
+
+Ron Watts

@@ -1,0 +1,114 @@
+---
+title: "Stoke Ferry Parish Council August meeting"
+date: "2015-10-22"
+categories: 
+  - "parish-councils"
+  - "stoke-ferry"
+  - "village-pump"
+---
+
+Minutes of the Stoke Ferry Parish Council meeting held on 12 August 2015
+
+Attendance: D Clements (Chair), C Hardy, S Harrison, M Leamon, S Lintern, A Lyons, M Precey, E Taylor, J A Taylor (Clerk), Borough Councillor C Sampson, County Councillor M Storey, 13 members of the public.
+
+1\. Apologies
+
+None.
+
+2\. Minutes of the last meeting 8 July 2015
+
+Cllr Precey proposed approval; Cllr Lintern seconded; 7 for, 1 abstention (Cllr Leamon absent from that meeting); Carried.
+
+3\. Matters arising
+
+2Agriculture footpath: remained unstrimmed. Clerk to request attention from 2Agriculture. Health Watch re GP provision in Stoke Ferry: to be carried forward to the autumn. Land between Indigo Road and 2Agriculture: now cleared. Cllr Leamon asked who owned the wall running along Stoke Ferry Regeneration Ltd land to the right of the Village Hall; it has loose bricks on top which are falling off. Clerk to contact SFRLtd. Highways visit due on 20th July: apparently did not happen. Clerk to contact Highways and ask a representative to meet members of the Council to agree what needs to be done within the village. Purchase of Council strimmer: Cllr Lyons had made the purchase. Clerk advised that the Council’s insurers require Council to perform a risk assessment. Clerk to liaise with Cllr Lyons; item to be included on the next agenda.
+
+4\. Declarations of Interest
+
+None.
+
+5\. To review Email/correspondence policy and Freedom of Information policy
+
+Email/correspondence policy: the policy updated the requirement for councillors who are sending correspondence on behalf of the Council to copy the Clerk. Clerk explained that as the Council is required to operate with complete transparency and openness, it was necessary for the files to contain all Council correspondence whether sent by councillors or clerk. Cllr Taylor proposed acceptance of the change; Cllr Lyons seconded; 6 for, 2 against; Carried.
+
+Freedom of Information policy: some councillors expressed concern that the document had not arrived in a sufficiently timely manner to be reviewed fully. Item to be deferred to the next meeting.
+
+Cllr Hardy expressed concern that the current procedure of Clerk emailing documents to councillors was costing too much for individual councillors in printing out. It was suggested that Clerk print hard copies of agenda, minutes, and all other papers and deliver them to councillors. Cllr Clements raised this motion. Cllr Hardy agreed.
+
+6\. To consider information leaflet for residents attending Council meetings
+
+Cllr Leamon proposed approval of the leaflet; Cllr Lintern seconded; all in favour; Carried. It was suggested that 10 copies be laminated. Cllr Lintern agreed to do this.
+
+7\. Speeding – entrance gates for the village/speed indicator signs
+
+Cllr Hardy had provided costings for speed indicator signs, which were approximately £2,500 to £3,000 per unit, depending on supplier and whether lights were wired to the electricity supply, or solar-powered. Clerk queried whether at this cost, councillors were still minded to purchase speed indicators; this was confirmed. Councillors queried whether more than one bid could be put forward to the Norfolk Parish Partnership, so that white entrance gates for the village could also be part-funded. Clerk to investigate. Cllr Lintern suggested contacting the Norfolk Community Foundation regarding additional funding. Clerk to do so.
+
+This item to appear on the next agenda, and as a specific item for consideration for the 2016/17 Budget.
+
+8\. Co-option of councillor
+
+Clerk informed the meeting that Cllr Denny had resigned. Borough Council had been informed and the required notice regarding request for election had been posted in the village. BC would inform SFPC if residents had requested an election; if not, SFPC would receive permission to co-opt. Clerk presented a draft advert, which was agreed. Estimated cost to the Parish should an election be required: £2,500.
+
+9\. To consider a quarterly newsletter
+
+Cllr Clements stated that a key obstacle was in finding enough people to distribute a newsletter. Cllr Leamon suggested that supplies could be left at local shops and businesses for residents to pick up. Clerk to investigate funding from Norfolk Community Foundation; if funding could be obtained, then item to go on next agenda with request for volunteers for distribution.
+
+10\. Signs: “No Ball Games” – report from Clerk
+
+Clerk reported back from Borough Council: they do not use such signs, as they are unenforceable. It is not possible to prevent members of the public from using public land. If they are causing a nuisance, that is dealt with under a different regime. It was agreed that this proposal be dropped, but to double-check with Highways for their view. 11 To Consider Planning Applications approved/refused by the Borough Council
+
+Mill Houses, Boughton Road – conversion of covered parking to garage with installation of garage door and infill rear wall. Application permitted. The Old Bull, Bridge Road: tree application – no objection.
+
+12 To Approve Payments to be made
+
+£ £ £ Date Item Chq/DD Net VAT Gross
+
+30/06/2015 Glazewing, June Cemetery bins DD 14.80 2.96 17.76 20/07/2015 Wereham Parish Council, training session Chq 120.00 0.00 120.00 20/07/2015 All Saints Academy, hall hire July 2015 Chq 15.44 0.00 15.44 27/07/2015 Cllr A Lyons, strimmer purchase Chq 41.66 8.33 49.99 31/07/2015 Clerk July salary Chq 388.37 0.00 388.37 31/07/2015 Clerk July expenses Chq 47.30 0.00 47.30 31/07/2015 Glazewing, July Cemetery bins DD 14.80 2.96 17.76 01/08/2015 Eon, lighting electricity, July 2015 DD 43.22 2.16 45.38 07/08/2015 Westcotec, lighting maintenance Aug 2015 Chq 15.44 3.09 18.53
+
+701.03 19.50 720.53
+
+Balances at 31/7/2015: Business Saver Account £16,548.00: Community Account £4,503.50
+
+Cllr Hardy proposed approval; Cllr Lintern seconded; all in favour; Carried.
+
+Clerk commented that electricity costs appeared to be increasing – councillors agreed. Clerk to analyse over past months to confirm.
+
+13 Correspondence Received
+
+Royal Mail: response to complaint regarding an earlier final collection time for Stoke Ferry; the change is due to efficiency requirements and will not be reconsidered.
+
+Playing Field: email from Mr Matt Kenny regarding his presentation at the last meeting and Clerk’s response.
+
+Wereham Village Hall: further explanation of the community hub scheme and its provisions for Stoke Ferry residents. Council agreed not to provide letter of support.
+
+14 To receive Further Information or suggested items to be considered for the next meeting Agenda (Councillors/Public)
+
+Cllr Clements read out the Council’s letter of thanks to Mr and Mrs Self for donating a safe to the Council.
+
+Cllr Clements reported back on the SNAP meeting. These would now be held every two months at Downham Market Town Hall. The next meeting is at 7pm on 7th October. No PCSO would attend parish council meetings in the future. Both changes are due to budget cuts. Current priorities for PCSOs are Methwold auction parking, and Southery Village Hall which had been broken into.
+
+Sharon Ludford, BCKLWN Neighbourhood Officer, was trying to find out who owns the Common; Cllr Clements had sent evidence of fly-tipping on the Common to her.
+
+Cllr Clements reported that a sign outside the High Street kebab shop was on Highways’ land, and Highways had been notified.
+
+Cllr Clements reiterated the overgrown state of the bus stop outside the school: a complaint had been made to Highways. This would be added to the list of tasks for Highways to undertake.
+
+Cllr Clements had contacted W H Brown, vendors of the woodyard, asking the owners to clean up the site. She would liaise with Borough Cllr Sampson.
+
+Cllr Clements confirmed that Highways owned The Hill and would give copies of the relevant map to councillors.
+
+Cllr Hardy requested that that the Council send a letter of appreciation to the owners of The Cottage, Lynn Road, regarding the improvement of their frontage. Clerk to action.
+
+Borough Councillor Sampson had no specific comments to make, but invited those present who had queries about the Site Allocation and Management process to talk to him after the meeting.
+
+County Councillor Storey reported that better broadband should be available to 170,000 homes and businesses in Norfolk by the end of the year. There is another hazardous waste amnesty in September involving seven waste sites including hopefully Thetford. Dates are on the NCC website. There would be an Extraordinary meeting of NCC on 2 September to discuss the Northern Distributor Road which needs £29.9m more in funding to continue. The money required to be provided by NCC would likely come from adult and children’s services.
+
+Members of the public:
+
+It was commented that the grass cutting done by Borough Council had not been done satisfactorily. The hedge on Bridge Road needs cutting back (to be added to Highways’ list). The cul-de-sac in Buckenham Drive has nine cars parked on one corner, which causes a hazard for children playing. Cllr Clements would bring this up at the next SNAP meeting. There is a pothole on Lynn Road outside Bonnett’s (to be added to Highways’ list). It was commented regarding the cost of councillors printing out their own paperwork, would it be cheaper to give councillors a supply of paper rather than pay the Clerk to print paperwork out? Cllr Hardy pointed out the additional cost of printer ink for councillors; Cllr Clements confirmed that Clerk must print out and deliver papers to all councillors. The Common: Mr Philpott reported that he had found the bench, which was covered in brambles. He queried whether anyone had access to the appropriate equipment which could deal with this and whether there are any volunteers who could help keep The Common tidy and accessible. He commented that Norfolk County Council would not help. Cllr Lyons confirmed that he is gradually strimming back brambles where possible. Mr Nicholas-Letch reiterated various points regarding The Hill, The Common, and Norfolk Parish Partnership, and suggested the installation of a path could be considered across the Playing Field. Mr Sewell queried the schedule for the cutting of the Playing Field: Cllr Lyons confirmed that it is due every two weeks, but because of the recent inclement weather, the schedule is slipping somewhat.
+
+15 Date and time of next meeting – Wednesday 9 September 2015 at 7.30pm
+
+NOTE NEW VENUE: VILLAGE HALL
+
+The meeting closed at 8.40pm.

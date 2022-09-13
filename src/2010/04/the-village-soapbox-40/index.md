@@ -1,0 +1,30 @@
+---
+title: "THE VILLAGE SOAPBOX"
+date: "2010-04-01"
+categories: 
+  - "village-pump"
+---
+
+Ron expresses a view on the Falkland saga
+
+The Falklands
+
+I was always opposed to the Falklands war. We should never have allowed the situation to arise where the Argentines thought that they could establish their sovereignty over the islands by force. The Thatcher government withdrew the one Royal Navy ship we had in the area in order to save a few pounds, and that gave a mixed signal to the Argentines, it probably seemed to them that we were denying their rights to the islands but apparently showing no interest in defending them.
+
+Of course, after the invasion a war seemed inevitable but it should never have been allowed to get to that stage. Our right to sovereignty over the islands is questionable - a small group of islands thousands of miles away? Although the islands are three hundred miles away from their coast, the Argentines felt that they had a more justifiable claim, comparable, perhaps with the British claim to the Shetlands. Before the war the conflicting claims of the two nations were well understood, why could they not be resolved by negotiations?
+
+Historically the islands were first located and noted by Spanish explorers in the 16th century, at the time they were uninhabited. Commander Richard Hawkins, an Englishman, visited in 1592 and called the islands 'Hawkins Maidenland'. In 1690 John Strong landed on the islands, his expedition was funded by Admiral Falkland and he named the channel between the main islands 'Falklands Channel' (now Falkland Sound). The first settlement on the islands, however, was by the French in 1764 on the east side, at what is now Port Louis. One year later John Byron landed on the west side unaware of the French, he called the harbour there Port Egmont and the British established a settlement there in 1766. The Spanish acquired the French settlement in1767, and placed the islands under the control of the Spanish colonial administration in Buenos Aires, they went on to attack the British at Port Egmont in 1770. A peace treaty subsequently allowed the British to return in1771 with neither side relinquishing sovereignty.
+
+In 1774, when Britain was withdrawing from a number of overseas settlements, they abandoned Port Egmont, but left a plaque asserting their claim. Spain continued to support a settlement there, under the control of Buenos Aires, until 1811 when they too withdrew, leaving a plaque asserting their claim. Then in 1820 an American sailor, David Jewett in the employ of Patrick Lynch an Argentine, raised the Argentine flag on the islands and the Argentines went on to establish a settlement and a penal colony in 1828. The settlement was destroyed by US warships in 1831 during a dispute with Argentina, they left a population of ex-prisoners and pirates. An attempt by the Argentines in 1832 to re-establish authority met with rebellious inhabitants who killed the governor.
+
+In 1833 British forces returned and informed the Argentines that they intended to reassert Britsh sovereignty. The Argentine settlers were allowed to stay, with an Irish member of the group, William Dickinson, appointed governor. The British built a naval base at Stanley as a strategic point for navigation. In World War I there was a naval battle 'The Battle of Falkland Islands' resulting in a British victory over the German Asiatic Fleet. The base at Stanley also played an important role during World War II. After the second world war the Argentines restated their claim to the islands hoping to take advantage of the new UN resolution in relation to decolonization. The UK pointed out that for fulfillment of UN resolution 1514, the Falkland Islanders had to vote for British withdrawal in a referendum, which they would not do, and that has remained the sticking point ever since.
+
+Ever since the Falklands war the Argentines have maintained their claim to the islands and resolved to pursue their claim by peaceful means. The UK has refused to engage in talks and in 2007 submitted a claim to extend the sea bed territory around the Falklands and South Georgia. The position with regards to this claim is unclear to me but it does not appear to give the UK indisputable rights for oil and gas exploration.
+
+At the time of the Falklands war there were less than a thousand families on the islands. I always thought that one option would have been to offer each one a million pounds (that was a lot more money in those days) to go and buy a sheep farm elsewhere - New Zealand - Australia or the UK, my guess is that most would have taken the offer which could have been jointly funded. I think most islanders would have been happy and we could, perhaps, have agreed some joint sovereignty with the Argentines. The war cost both nations very much more than it would have cost to compensate the islanders, and worse still, it cost the lives of very many good young men on both sides, not forgetting the sinking of the Belgrano, and left many others maimed.
+
+Now there is the probability of oil under the sea surrounding the islands and that has complicated matters. Having spilt so much blood in recent history it is even more difficult for Britain to renounce sovereignty and the possibility of 'British' oil has greatly strengthened Britain's motive for hanging on to the Falklands. At the same time it has greatly angered the Argentines to think that the British will be harvesting the oil that they believe is rightly theirs. It is a situation that will breed bitterness and, I believe, will not increase Britain's popularity in the world.
+
+Argentina is not a rich country, they have many very poor people, children go begging in the streets. They regard Britain as a rich country and will resent even more witnessing Britain taking the riches from the waters of the 'Malvinas'. Britain cannot possibly consider yielding to the Agentine's claims but morally, it could be argued, Britain should agree to share those riches and, perhaps, to talk about the possibility of joint sovereignty at some time in the future.
+
+Ron Watts

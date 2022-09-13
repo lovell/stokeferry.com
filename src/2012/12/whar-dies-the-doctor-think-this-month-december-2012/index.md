@@ -1,0 +1,28 @@
+---
+title: "What Does the Doctor think this month? December 2012"
+date: "2012-12-11"
+categories: 
+  - "village-pump"
+---
+
+Some days do not start well. Last week, after a poor night's sleep, I cleaned my teeth with shaving cream, lathered my face with toothpaste  (well, the tube do look similar) and finished by spraying under my arms with an old aerosol of shaving foam that I had been keeping in my cabinet for a rainy day. That is the sort of start which makes me anxious about using the motor car! I suppose that it is just confirmation that the birth certificate is “wearing out” and it started me reminiscing about the changes which have taken place since I was born at the end of the War. Given the knowledge which we now possess, how on earth did we survive?
+
+                Some of us  were born to mothers who believed the advertisements that smoking was good for you and liked a drink. They ate soft cheese, bread and dripping, raw egg products and lots of bacon and processed meat, when they were available (I was always told that the name “Spam” was the acronym for Specially Prepared Artificial Meat but I suspect my leg was being pulled). Having survived the birth, we were stored in cots painted with lead-containing paints and given toys similarly painted. I grew up replete with tablespoonfulls of malt and caster oil. The immediate post-war years were very healthy as food was so limited. I remember vividly my mother's excitement at the first banana to appear after the War, shortly followed by a tin of biscuits (sugar icing and decorated with white stick men) sent by a relative in Canada.
+
+                From the age of 5, I walked 2 miles to and from school, rode my roller skates for miles on end and tore down hills on a “trolley” made from old pram wheels, 3 planks of wood and a length of rope. The sophisticated models I made later on had brakes and battery-powered lights. We had outside dens and would play by the river for hours, looking for Liverwort, etc. The only time I remember being in trouble was when my friend and I had been at the river so long that my father sent the police as he could not find us. From the age of 13, I would go off on my bike for a week or more at a time, touring North Wales or the Lake District and staying in Youth Hostels. No cycle helmets in those days!
+
+                The immediate post-war years were very healthy as food was so limited. I remember vividly my mother's excitement at the first banana to appear after the War, shortly followed by a tin of biscuits (sugar icing and decorated with white stick men) sent by a relative in Canada.
+
+                I spent my entire formative years in my school uniform. I even have pictures of myself on a family holiday when I was about 7 – I am on the beach, fashioning a speedboat in the sand, and wearing my shool blazer and cap! The alternative was the woollen knitted swimming trunks which kept falling down when they got wet. Wagon Wheels were enormous and the penny tray in the newsagent was a source of wonderment – Black Jacks 4 for a penny, Aniseed balls the same, Traffic lights 2 for a penny and GobStoppers a penny each. For the young readers, two and a half of those pennies became one new penny at decimalisation.
+
+                Life was quite competitive and we often had to deal with disappointment. We had Houses at school and the athletics inter-house competitions used to horrible. I was a good sprinter but I was useless at the 440, the 880 and cross-country. Teachers would hit us with slippers, the side of a ruler (really painful) or, worse, the cane and they would throw the blackboard rubber at us. Our parents taught us to be polite (I was once severely berated for continuing to suck a lolly while talking to a friend of my father), gave us a good education and backed the teacher up if there was a problem.
+
+                All in all, the circumstances were such that we could have freedom to roam, had an enormous amount of exercise, and learned how to deal with success and failure.
+
+                All this has reminded me of one of my favourite authors, Gervaise Phinn, who was a school inspector in Yorkshire many years ago and has written entertainingly on the subject. I read in one of his books the other night that Rotherham, his home town, does not have a twin town. Rather, according to Gervaise, it has a suicide pact with Scunthorpe. In those days, mad dogs were put to sleep; he reminded me of another old Chick Murray joke – a man told his friend that he was going to have his dog put down. “Is it mad?” asked the friend - “Well, he's not exactly happy about it”. It works equally well when the diner, eating wild boar in a posh restaurant, asks “Was this boar really wild?”  “Oh Sir” replied the waiter “Was it wild? When we shot it it was absolutely ++++++furious”
+
+                An elderly couple had always paid for their son and daughter to fly home for Christmas but funds became tight so, in November, the father rang his son and told him that he was leaving his wife because he had had enough; it was something he should have done years ago! The son rang his sister, who then telephoned her parents to say that she and the son had never heard anything so ridiculous and would be flying home at Christmas to sort the matter out. Father and Mother grinned at each other and gave a big “High Five” - the kids were coming home for christmas and were paying their own fares!
+
+Deannie (aka Management, Head Office and Lollipop) joins me in wishing all of you a very happy Christmas and a healthy New Year.                                                                                           
+
+ Best wishes,   Ian Nisbet
