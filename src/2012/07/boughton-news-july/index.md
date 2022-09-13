@@ -42,8 +42,6 @@ Then came the Pie judging, what a wonderful response. The judges had a very diff
 
  The standard of Entry was extremely high, Geoff & I salute the Pie makers of Boughton.
 
-[![](images/judges-looking-serious-done2-300x200.jpg "judges looking serious done")](http://www.stokeferry.com/wp-content/uploads/2012/07/judges-looking-serious-done2.jpg)
-
  Boughton Cricket Club, Village Caravan, Parochial Church Council and  Parish Council all came together to provide a great celebration on a very damp green. The Spirit of Boughton – what can I say – Wonderful.
 
  Then, what made it all so worthwhile, was a young boy knocking on my door to say thank you for a great day.

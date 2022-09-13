@@ -26,8 +26,6 @@ HJ
 
 **BOUGHTON WISHING BUCKET**
 
-**[![](images/wishing-bucket1-214x300.jpg "wishing bucket")](http://www.stokeferry.com/wp-content/uploads/2011/09/wishing-bucket1.jpg)**
-
 Have you seen the Boughton Wishing Bucket? It is situated next to the Post box adjacent The Green in Boughton. Originally an entry in the Boughton Bucket Challenge, the wishing well has now been put to further good use on The Green.
 
 When you are passing why not make a wish, a drop a few coins into the well to earn favour from the Boughton Wishing Bucket fairies? You never know, your dreams may well come true!

@@ -1,5 +1,5 @@
 ---
-title: "Stoke Ferry Diamond Jubilee- A Big Thankyou"
+title: "Stoke Ferry Diamond Jubilee - A Big Thank You"
 date: "2012-07-10"
 categories: 
   - "diamond-jubilee"
@@ -7,7 +7,7 @@ categories:
   - "villages"
 ---
 
-[![](images/DSC_0036-200x300.jpg "DSC_0036")](http://www.stokeferry.com/wp-content/uploads/2012/07/DSC_0036.jpg)It was 06.00 in the morning on Sunday 3 June when I woke up to the sound of heavy rain.  I knew at that moment that my idea of having a street party to celebrate the Queens Diamond Jubilee with our village neighbours was more fantasy than reality.  Why does the British weather always have to spoil our plans and ruin everything? 
+It was 06.00 in the morning on Sunday 3 June when I woke up to the sound of heavy rain.  I knew at that moment that my idea of having a street party to celebrate the Queens Diamond Jubilee with our village neighbours was more fantasy than reality.  Why does the British weather always have to spoil our plans and ruin everything? 
 
 Then, I started to think about the time my husband and I visited my sister in Calgary in Canada one Christmas.  Walking along the river there was snow everywhere and it was -15 degrees, however, the Canadians were celebrating the holidays by having BBQ’s and having a wonderful time, they just refused to let the weather interupt their plans.
 
@@ -19,10 +19,6 @@ The reason for writing this article is to say a big thank you to those people wh
 
 You might also like to know we had our photo in the Lynn News on the Tuesday and it is also on their website for those of you who may want to purchase a copy.
 
-I really enjoyed the whole experience of this event and am now considering my next project but this time I would really like the whole purpose to be to raise money for the Stoke Ferry Village Community or another well deserving charity.  I need to put my thinking cap on but it could be something along the lines of a quiz night/cheese & wine/race night – watch this space……
-
- 
-
-[![](images/DSC_0077-300x200.jpg "DSC_0077")](http://www.stokeferry.com/wp-content/uploads/2012/07/DSC_0077.jpg)
+I really enjoyed the whole experience of this event and am now considering my next project but this time I would really like the whole purpose to be to raise money for the Stoke Ferry Village Community or another well deserving charity.  I need to put my thinking cap on but it could be something along the lines of a quiz night/cheese & wine/race night – watch this space.
 
 Tracy McCarthy

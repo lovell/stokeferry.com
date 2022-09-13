@@ -8,7 +8,7 @@ categories:
   - "villages"
 ---
 
-[![](images/BLUE-BELL.jpg)](http://www.stokeferry.com/wp-content/uploads/2020/04/BLUE-BELL.jpg)The Blue Bell is holding a virtual pub quiz! **Tuesday, 5th May from 7.30pm** Join us for a fun hour of quiz questions and chat about the future of Stoke Ferry’s last Pub and the results of the survey of the village. We will be on Zoom. Just follow this link: https://bit.ly/34E1gj8
+The Blue Bell is holding a virtual pub quiz! **Tuesday, 5th May from 7.30pm** Join us for a fun hour of quiz questions and chat about the future of Stoke Ferry’s last Pub and the results of the survey of the village. We will be on Zoom. Just follow this link: https://bit.ly/34E1gj8
 
 **Join The Campaign To Save The Blue Bell** The campaign to save the Blue Bell for the community continues despite the challenging times. Her Majesty the Queen herself reminded us recently that we will all meet again. We want Stoke Ferry to have a new hub for our community, a place where people can have a laugh and a chat over a drink or a great meal, that brings people together and hopefully leads to more village activities being planned. Join the campaign by subscribing for updates on our website www.bluebellstokeferry.org
 

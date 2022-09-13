@@ -36,9 +36,7 @@ Boughton’s New Marquee!
 
 In keeping with their tradition of community spirit and community action, the Parish Council have, with the help of several donations, procured a new marquee for the village. You may have seen us erecting it on The Green one Sunday in early August.
 
-Here are the team just after erecting the new Boughton village marquee for the first time. What a beauty!’
-
-[![](images/IMG_2575-3-300x192.jpg "Boughton Village marquee")](http://www.stokeferry.com/wp-content/uploads/2011/08/IMG_2575-3.jpg)
+Here are the team just after erecting the new Boughton village marquee for the first time. What a beauty!
 
 We were able to purchase the marquee thanks to the prize money the village were awarded in winning the Pride in Norfolk competition, together with donations from the Church, the Cricket Club, the BVC and a personal donation from Mr & Mrs Fisher. We would like to thank everyone who helped us with the new marquee which is very robust and should last the village a long time. Keep a look out for a notice regarding hiring arrangements for village organisations and events
 
