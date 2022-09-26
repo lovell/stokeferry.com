@@ -1,3 +1,5 @@
+const pluginPurgeCss = require("eleventy-plugin-purgecss");
+
 const categories = [
   "parish-councils",
   "boughton",
@@ -37,6 +39,14 @@ module.exports = function (eleventyConfig) {
   eleventyConfig.addPassthroughCopy("CNAME");
   eleventyConfig.addPassthroughCopy("images");
   eleventyConfig.addPassthroughCopy("robots.txt");
+  eleventyConfig.addPassthroughCopy({
+    "node_modules/bootstrap/dist/css/bootstrap.min.css":
+      "css/bootstrap.min.css",
+  });
+  eleventyConfig.addPassthroughCopy({
+    "node_modules/bootstrap/dist/js/bootstrap.bundle.min.js":
+      "js/bootstrap.bundle.min.js",
+  });
   // Collections
   categories.forEach((category) =>
     eleventyConfig.addCollection(category, (collectionApi) =>
@@ -64,4 +74,6 @@ module.exports = function (eleventyConfig) {
   // Filters
   eleventyConfig.addFilter("headerImage", headerImageFilter);
   eleventyConfig.addFilter("monthAndYear", monthAndYearFilter);
+  // Plugins
+  eleventyConfig.addPlugin(pluginPurgeCss);
 };
